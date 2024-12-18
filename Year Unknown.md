@@ -1,0 +1,6777 @@
+# 出生年份不详
+
+01/01 财津 庆子(Zaitsu Keiko)〔东京都〕
+
+01/01 林 雅贵(Hayashi Masaki)〔大阪府〕
+
+01/01 吉成 あやの(Yoshinarai Ayano)（参考中译：吉成彩乃/吉成绫乃）〔东京都〕
+
+01/01 鸟井 林太郎(Torii Rintaro)（旧名：鸟井林太朗/鸟井赏也(Torii Yoshinari)(本名)）〔北海道〕（岩窟王：岩窟王）
+
+01/01 原 ミユキ(Hara Miyuki)（参考中译：原美幸）（旧名：丸山みゆき(Kikuyama Miyuki)）（本名：原みゆき）〔东京都〕
+
+01/02 うさみ 航(Usami Wataru)（中译：宇佐美航）（旧名：宇佐美贵之(Usami Takyuki)/ウサミワタル(Usami Wataku)）〔新潟県〕（一人之下 the outcast：业兴）
+
+01/02 真壁 かずみ(Makabe Kazumi)（中译：真壁佳寿实）（本名&旧名：高本佳寿实(Takamoto Kazumi)）〔福冈県〕（舞动芝加哥(2010)：洛琪·布鲁(吹替)）
+
+01/02 たかした みか(Takashita Mika)（中译&旧名：高下三佳）〔东京都〕（偶像大师：高槻浩司）
+
+01/02 安部川 贤治郎(Abekawa Kenjirou)〔东京都〕（2.43清阴高中男子排球社：高杉润五）
+
+01/02 福乃 爱(Fukuno Ai)（旧名：朝雾爱(Asagiri Ai)/富久世爱(Fukuse Ai)）〔神奈川県〕
+
+01/02 仲村 美沙希(Nakamura Misaki)（本名&旧名：中村美咲）〔京都府〕
+
+01/02 沙来(Sara)〔新潟県〕（科学小飞侠Crowds Insight：横山夏树）
+
+01/02 星谷 美绪(Hoshitani Mio)〔山梨県〕（Z/X Code reunion：索涅）
+
+01/02 三浦 博和(Miura Hirokazu)〔东京都〕（K：加茂刘芳）
+
+01/02 冈 雅子(Oka Masako)（旧名：冈真佐子）〔爱媛県〕
+
+01/02 阿依 あい(Ai Ai)（参考中译：阿依爱）〔东京都〕
+
+01/02 须川 晶纪(Sugawa Aki)〔东京都〕
+
+01/02 佐佐木 阳大(Sasaki Youta)〔广岛県〕
+
+01/03 原 良丞(Hara Ryousuke)〔和歌山県〕
+
+01/03 佐佐木 拓真(Sasaki Takuma)〔北海道〕
+
+01/03 龙门 睦月(Ryoumon Mutsuki)〔冈山県〕
+
+01/03 高木 康多(Takagi Kouta)〔千叶県〕
+
+01/03 高桥 和代(Takahashi Kazuyo)〔东京都〕（忍者乱太郎：卯子※第12期）
+
+01/03 小幡 记子(Obata Noriko)〔千叶県〕（Infinite Stratos：五反田兰）
+
+01/03 根本 央纪(Nemoto Hisanori)（旧名：根本ひさのり）〔德岛県〕
+
+01/03 吉田 麻子(Yoshida Asako)〔鸟取県〕（家庭教师：狱寺隼人(幼少期)）
+
+01/03 野田 真理爱(Noda Maria)〔爱知県〕（Muv-Luv Alternative：柏木晴子）
+
+01/03 民安 ともえ(Tamiyasu Tomoe)（中译：民安友绘）（旧名：田宫トモエ(Tamiya Tomoe)/たみやすともえ）（配偶：中村圭佑）〔广岛県〕（Little Buster：枣铃）
+
+01/04 绫见 优希(Ayami Yuki)（旧名：绫见有纪）〔广岛県〕
+
+01/04 水濑 郁(Minase Iku)〔东京都〕（环太平洋黑色禁区：罗亚）
+
+01/04 北 炀子(Kita Youko)（旧名：北岛畅子(Kitajima Youko)）〔山口県〕
+
+01/04 山口 茧(Yamaguchi Mayu)〔大阪府〕（ともだち8にん：ニコ&トッピィ）
+
+01/04 御堂 ダリア(Midou Daria)（参考中译：御堂黛丽亚/御堂达莉雅/御堂大丽亚）〔大阪府〕（高分少女：鬼冢千寻）
+
+01/04 早濑 ゆか(Hayase Yuka)（中译：早濑由佳）（旧名：早川由佳子(Hayakawa Yukako)）〔爱知県〕（花右京女仆队：早苗八岛）
+
+01/04 广濑 直也(Hirose Naoya)〔千叶県〕
+
+01/04 菅原 壮一郎(Sugawara Souichirou)〔北海道〕
+
+01/04 长谷川 敦央(Hasegawa Atsuo)〔埼玉県〕
+
+01/04 藤井 麻衣(Fujii Mai)〔埼玉県〕
+
+01/04 酒井 凛太朗(Sakai Rintarou)〔山形県〕
+
+01/05 猪爪 育人(Inotsume Ikuto)〔新潟県〕
+
+01/05 MIKI(Miki)〔东京都〕
+
+01/05 山内 亚依(Yamauchi Ai)〔爱知県〕
+
+01/05 小林 全(Kobayashi Zen)〔神奈川県〕
+
+01/05 山崎 刚士(Yamazaki Tsuyoshi)〔石川県〕
+
+01/05 大沼 かほり(Oonuma Kahori)〔宫城県〕
+
+01/05 奥井 ゆうこ(Okui Yuuko)（本名&中译：奥井优子）〔三重県〕
+
+01/05 杉林 晟人(Sugibayashi Akito)〔神奈川県〕（TECHNOROID Project：拉那）
+
+01/05 古贺 晶子(Koga Akiko)〔福冈県〕（新干线变形机器人SHINKALION Z：中州北条）
+
+01/06 佐久间 比吕美(Sakuma Hiromi)〔千叶県〕（碧蓝航线：诺福克）
+
+01/06 安西 英美(Anzai Hidemi)〔神奈川県〕（レッツゴー!トミカボーイズ：ゴウタくん(OVA)）
+
+01/06 琴坂 みう(Kotosaka Miu)（参考中译：琴坂美羽）〔长崎県〕（联盟空军航空魔法音乐队光明魔女：希尔薇·卡列洛(Silvie Cariello)(初代)）
+
+01/06 海弓 シュリ(Miyumi Shuri)（参考中译：海弓朱里/海弓首里）（旧名：MIYU）〔冲绳県〕【本名大概率为首里Miyu】
+
+01/06 渡边 みゆ(Watanabe Miyu)（旧名：渡边ゆみ子(Watanabe Yumiko)）〔神奈川県〕
+
+01/06 叶山 那奈(Hayama Nana)〔神奈川県〕
+
+01/06 川村 玲奈(Kawamura Reina)〔大阪府〕
+
+01/06 户川 绘美(Togawa Emi)〔广岛県〕
+
+01/06 松下 哲(Matsushita Akira)〔大阪府〕
+
+01/06 铃木 拓也(Suzuki Takuya)〔爱知県〕
+
+01/07 小泽 梨佳(Ozawa Rika)〔神奈川県〕
+
+01/07 岩崎 洋介(Iwazaki Yousuke)〔千叶県〕
+
+01/07 大冢 壮晴(Ootsuka Takeharu)〔千叶県〕
+
+01/07 小田 珠实(Oda Tamami)〔埼玉県〕
+
+01/07 土井 正昭(Doi Tadaaki)〔兵库県〕
+
+01/07 大河 望(Taiga Nozomu)〔埼玉県〕
+
+01/07 栗田 树(Kurita Izuki)〔枥木県〕
+
+01/07 田边 安彦(Tanabe Yasuhiko)（旧名：田边康彦）〔京都府〕
+
+01/07 向山 直美(Mukaiyama Naomi)〔福冈県〕（碧蓝航线：伦敦）
+
+01/07 太田 真由美(Ooda Mayumi)〔北海道〕（忍者乱太郎：鹤町浮木藏）
+
+01/07 白石 智起(Shiraishi Tomoko)〔爱媛県〕（王在相爱/恋爱中的王(2017)：金内官(吹替)）
+
+01/07 永宫 瑠里菜(Nagamiya Rurina)（本名&旧名：岩间瑠里菜(Iwama Rurina)）〔东京都〕
+
+01/07 さとう 实琴(Satou Mikoto)（中译：佐藤实琴）（旧名：东风たまこ）〔埼玉県〕（决斗大师-Victory-V：南藻奈巳）
+
+01/08 吉河 顺央 (Yoshikawa Sunao)〔东京都〕（美妙魔法！：Kyaron）
+
+01/08 井本 ケイ(Inoue Kei)（中译：井本惠）（旧名：井本惠子(Inoue Keiko)）〔福冈県〕（School Days：清浦刹那）
+
+01/08 森永 千才(Morinaga Chitose)〔神奈川県〕（我被绑架到贵族女校当"庶民样本"：神领可怜）
+
+01/08 夏岛 ひかり(Natsushima Hikari)（参考中译：夏岛光）（旧名：MARISA）〔东京都〕
+
+01/08 八幡 谅(Yawata Ryou)〔鸟取県〕
+
+01/08 巴 十一(Tomoe Toichi)〔大阪府〕
+
+01/08 木村 亮俊(Kiramura Aitoshi)〔岩手県〕
+
+01/08 国井 修(Kunii Osamu)〔东京都〕
+
+01/08 森山 和辉(Moriyama Kazuki)〔千叶県〕
+
+01/08 河野 智平(Kouno Chihira)〔香川県〕
+
+01/08 古泽 文教(Furusawa Bunkyou)〔宫崎県〕
+
+01/08 竹岛 聪之介(Takeshima Sounosuke)〔大分県〕
+
+01/08 弥永 健人(Yanaga Kento)〔埼玉県〕
+
+01/08 宫泽 拓弥(Miyazawa Takumi)〔？？？〕
+
+01/09 藤田 将利(Fujita Masatoshi)〔东京都〕
+
+01/09 真砂 英哲(Masago Eitetsy)〔香川県〕
+
+01/09 近野 真昼(Konno Mahiro)〔神奈川県〕
+
+01/09 高崎 拓郎(Takasaki Takurou)〔北海道〕
+
+01/09 中田 沙奈枝(Nakata Sanae)〔北海道〕
+
+01/09 小野寺 瑠奈(Onodera Runa)〔东京都〕（哥斯拉S.P\<奇点\>：莉娜·巴恩）
+
+01/09 村本 享太郎(Muramoto Kyoutarou)〔宫城県〕（喷嚏大魔王2020：与田山刚）
+
+01/09 中矢 翔武人(Nakaya Kabuto)〔爱媛県〕（梦王国与沉睡的100王子：兰达(游戏/初代)）
+
+01/09 森屋 チェリー さちよ(Moriya Cherry Sachiyo)（中译：森屋彻丽佐智代）（旧名：守屋佐智代(Moriya Sachiyo)/森屋さちよ）〔神奈川県〕
+
+01/10 兰乃 和佳子(Ranno Wakako)〔千叶県〕（理想禁区：赵柔怡）
+
+01/10 岩村 琴美(Iwamura Kotomi)〔埼玉県〕（棒球大联盟：茂野真吾）
+
+01/10 飞野 かなこ(Hino Kanako)（别名：渡边ひなこ(Watanabe Hinako)）〔东京都〕
+
+01/10 天野 宏乡(Amano Hirosato)（本名&旧名：田中宏乡(Tanaka Hirosato)）〔秋田県〕
+
+01/10 天田 有希子(Amada Yukiko)〔神奈川県〕（一骑当千Dragon Destiny：马谡幼常）
+
+01/10 高野 宪太朗(Takano Kentaro)〔茨城県〕（HERO MASK 英雄假面：埃德蒙德·向德拉）
+
+01/10 和泉 忍(Izumi Shinobu)（旧名：伊藤叶子(Itou Yoko)(本名)/伊藤叶纯(Itou Hasumi)）〔岩手県〕（Fate/Zero：远坂葵）
+
+01/10 松尾 桂树(Matsuo Keijyu)（其他拼写：Mathuo Keijyu）（旧名：松尾桂介(Matsuo Keisuke)）〔山形県〕（信不信由你(2019)：菲利普(吹替)）
+
+01/10 结木 美咲(Yuki Misaki)（本名&旧名：大山美咲(Ooyama Misaki)）〔神奈川県〕（联盟空军航空魔法音乐队光明魔女：玛纳雅·马塔霍拉·哈都(Manaia Matawhaura Hato)）
+
+01/10 早坂 爱(Hayasaka Ai)〔福冈県〕
+
+01/10 斋藤 阳介(Saito Yosuke)〔岐阜県〕
+
+01/10 饭岛 晶子(Iijima Akiko)〔茨城県〕
+
+01/10 藤泽 雄生(Fujisawa Yuki)〔长野県〕
+
+01/10 胜亦 里佳(Katsumata Rika)〔静冈県〕
+
+01/10 佐藤 まさみ(Satou Masami)〔东京都〕
+
+01/10 水野 贵雄(Mizuno Takao)〔福冈県〕
+
+01/10 幸村 郁(Yukimora Iku)〔福冈県〕
+
+01/11 奥村 真由(Okumura Mayu)〔岐阜県〕
+
+01/11 阴山 真寿美(Kageyama Masumi)〔京都府〕
+
+01/11 西川 景子(Nishikawa Keiko)〔东京都〕
+
+01/11 田中 章贵(Tanaka Toshiki)〔神奈川県〕
+
+01/11 丰原 皇介(Toshihara Kousuke)〔宫城県〕
+
+01/11 菅野 一(Kanni Hajime)〔东京都〕
+
+01/11 须尧 祐(SugyouYuu)〔福冈県〕
+
+01/11 铃木 ゆうこ(Suzuki Yuuko)〔埼玉県〕
+
+01/11 真野 美月(Mano Mizuki)〔大分県〕（怪人沙拉碗：闺春花）
+
+01/11 鸟居 麻弥(Torii Maya)（旧名：槙彩文子(Maki Ayako)）〔东京都〕
+
+01/11 草柳 顺子(Kusayanagi Junko)〔神奈川県〕（日东月西：天崎美琴）
+
+01/11 西岛 麻纮(Nishijima Mahiro)〔神奈川県〕（陆贞传奇(2013)：萧唤云(吹替)）
+
+01/11 宇乃音 亚季( Unone Aki)〔东京都〕（苍穹的法芙娜EXODUS：基思·沃塔）
+
+01/11 岩花 美弥(Iwahana Miya)（本名&旧名：五内川雅(Gonaikawa Miyabi)）〔岩手県〕
+
+01/11 和泉 风花(Izumi Fuuka)〔爱知県〕（憧憬成为魔法少女：柊舞缇娜/恶之女干部/魔法枫糖）
+
+01/12 立石 みこ(Tateishi Miko)（参考中译：立石美子）〔爱知県〕
+
+01/12 桥村 あゆ(Hashimura Ayu)（参考中译：桥村亚由）〔京都府〕
+
+01/12 大森 ゆき(Oomori Yuki)（参考中译：大森幸/大森友纪）〔山梨県〕
+
+01/12 水野 骏太郎(Mizuno Shuntarou)〔冈山県〕（弱气角色友崎君：竹井）
+
+01/12 高木 友梨香(Takagi Yurika)〔新潟県〕（八月的棒球甜心：中野绫香）
+
+01/12 大津 奈美子(Otsu Namiko)〔香川県〕（犀利人妻(2010)：温瑞萱(吹替)）
+
+01/12 高田 べん(Takada Ben)（本名&中译：高田勉）（别名：永徒满）〔山口県〕
+
+01/12 户松 拳也(Tomatsu Kenya)〔埼玉県〕
+
+01/12 石井 瑞树(Ishii Mizuki)〔福岛県〕
+
+01/12 小林 真麻(Kobayashi Maasa)〔埼玉県〕
+
+01/13 铃木 さやか(Suzuki Sayaka)〔东京都〕
+
+01/13 富士渊 将行(Fujibuchi Masayuki)〔爱媛県〕
+
+01/13 丰岛 武人(Toyoshima Taketo)〔东京都〕
+
+01/13 椿 まりか(Tsubaki Marika)〔北海道〕
+
+01/13 太田 敦子(Oota Atsuko)〔千叶県〕
+
+01/13 松岛 广明(Matsushima Hiroaki)〔静冈県〕（金色琴弦：长谷川司）
+
+01/13 和泉 早希(Izumi Saki)（旧名：水谷早希(Mizutani Saki)）〔大阪府〕
+
+01/13 藤井 アユ美(Fujii Ayumi)（参考中译：藤井步美）〔广岛県〕(魔神英雄传七魂龙神丸：EXマン）
+
+01/14 松冈 章夫(Matsuoka Akio)〔东京都〕（SHADOW SKILL：ガウ=バン）
+
+01/14 木间 萌(Konoma Moe)〔新潟県〕
+
+01/14 横田 爱理(Yokota Eri)〔茨城県〕
+
+01/14 花田 枫(Hanada Kaede)〔千叶県〕
+
+01/15 绮田 育子(Kita Ikuko)〔宫城県〕
+
+01/15 新城 健(Shinjou Takeshi)〔冲绳県〕
+
+01/15 高桑 まりか(Takakuwa Marika)〔东京都〕
+
+01/15 土井 隆彦(Doita Kahiko)〔千叶県〕
+
+01/15 汲田 彩奈(Kumita Ayana)〔岐阜県〕
+
+01/15 川上 ゆき(Kawakami Yuki)（参考中译：川上由希/川上雪）〔冈山県〕
+
+01/15 小川 オペラ(Ogawa Opera)（本名&旧名：小川枝里子(Ogawa Eriko)）〔东京都〕
+
+01/15 桐谷 蝶蝶(Kiritani Chouchou)（旧名：杉野真奈美(Sugino Manami)）（配偶：堀大希）〔东京都〕（偶像大师 MILLION LIVE!：宫尾美也）
+
+01/16 松永 一辉(Matsunaga Kazuki)〔茨城県〕（踏切时间：田西）
+
+01/16 高桥 信(Takahashi Makoto)〔神奈川県〕（修业魔女璐璐萌：柴木耕太）
+
+01/16 汤浅 かえで(Yuasa Kaede)（参考中译：汤浅枫）（配偶：青柳尊哉）〔德岛県〕（怪兽娘：赞德利亚斯）
+
+01/16 奥原 カテリーナ 爱(Okuhara Katerina Ai)〔印度尼西亚〕
+
+01/16 吉柳 太士郎(Kiryou Tashirou)〔福冈県〕
+
+01/16 久田 康树(Hisada Kouki)〔爱知県〕
+
+01/16 中尾 友美(Nakao Tomomi)〔京都府〕
+
+01/16 赤间 志有(Akama Shiyu)〔东京都〕
+
+01/17 山本 绘美(Yamamoto Emi)〔大阪府〕
+
+01/17 间濑 爱季(Mase Aiki)〔兵库県〕
+
+01/17 葵井 歌菜(Aoi Kana)〔神奈川県〕（飞翔的魔女：木幡茜）
+
+01/17 朱野 みゆき(Akeno Miyuki)（旧名：中野みゆき(Nakano Miyuki)）〔静冈県〕
+
+01/17 村上 あかね(Murakami Akane)〔东京都〕（稻草人杀手(2002)：朱迪·帕特森(吹替)）
+
+01/18 平尾 明香(Hirao Sayaka)〔宫城県〕（怪谈餐馆：安藤より子）
+
+01/18 清水 こずえ(Shimizu Kozue)（参考中译：清水梢）（别名：淡雪）〔？？？〕
+
+01/18 水野 惠理子(Mizuno Rieko)〔岐阜県〕
+
+01/18 森 风子(Mori Fuuko)〔长崎県〕
+
+01/18 平野 佳奈(Hirano Kana)〔福冈県〕
+
+01/18 神本 绫华(Kamimoto Ayaka)〔东京都〕
+
+01/19 森 史绘(Mori Fumie)〔爱知県〕
+
+01/19 并川 可奈(Namikawa Kana)〔福冈県〕
+
+01/19 林 智子(Hayashi Tomoko)〔福冈県〕
+
+01/19 广濑 有香(Hirose Youka)〔北海道〕
+
+01/19 田中 美幸(Tanaka Miyuki)〔岐阜県〕
+
+01/19 水野 有纪子(Mizuno Yukiko)〔千叶県〕
+
+01/19 森 伸(Mori Shin)〔京都府〕
+
+01/19 蜂须贺 智隆(Hachisuka Tomotaka)〔东京都〕
+
+01/20 今濑 未知(Imase Michi)〔东京都〕（请在T台上微笑：宫本纯）
+
+01/20 福岛 亚美(Fukushima Ami)〔山口県〕（国王游戏：川野千亚）
+
+01/20 小田 悟(Oda Satoru)（旧名：槙濑さとる(Makise Satoru)）〔茨城県〕
+
+01/20 冈田 惠(Okada Megumi) 【非10月12日山形县出身姓名同音者】〔爱知県〕
+
+01/20 森田 了介(Morita Ryousuke)〔高知県〕（超感猎杀/Sense8：克普斯/Capheus(吹替)）
+
+01/20 本多 谅太(Honda Ryouta)（旧名：本多早云(Honda Souun)）（配偶：吉田圣子）〔神奈川県〕
+
+01/20 半谷 きみえ(Hantani Kimie)（参考中译：半谷君枝）〔？？？〕（奇天烈大百科：濑川高子(初代)）
+
+01/20 伊野月 修司(Inozuki Shuuji)〔宫城県〕
+
+01/20 木村 龙三(Kimura Ryouzou)〔香川県〕
+
+01/20 齐藤 直纪(Saito Naoki)〔大分県〕
+
+01/20 津村 峻矢(Tsumura Takaya)〔福冈県〕
+
+01/20 武藤 ゆき(Mutou Yuki)〔福岛県〕
+
+01/20 宫崎 聪(Miyazaki Satoshi)〔东京都〕
+
+01/20 日野 向葵(Hino Aoi)〔大阪府〕
+
+01/21 广濑 爱(Hirose Megumi)〔大阪府〕
+
+01/21 雨泽 祐贵(Amezawa Yuuki)〔群马県〕
+
+01/21 武藤 真子(Muto Mako)〔大阪府〕
+
+01/21 相叶 ゆきこ(Aiba Yukiko)〔东京都〕
+
+01/21 小林 美奈(Kobayashi Mina)〔福岛県〕
+
+01/21 高宫 武郎(Takamiya Takeo)〔滋贺県〕
+
+01/21 合原 万智(Gouhara Machi)〔广岛県〕
+
+01/21 有贺 友利惠(Ariga Yurie)（配偶：高梨谦吾）〔东京都〕
+
+01/21 大坪 瞳(Ootsubo Hitomi)〔北海道〕（游戏王GX：向平）
+
+01/21 风花 ましろ(Fuuka Mashiro)（参考中译：风花真白）〔北海道〕
+
+01/21 樱冈 あつこ(Sakuraoka Atsuko)（参考中译：樱冈敦子）〔茨城県〕
+
+01/21 野首 南帆子(Nokubi Naoko)〔岐阜県〕（僵尸国度系列：孙梅(吹替)）
+
+01/21 须嵜 成幸(Susaki Shigeyuki)〔鸟取県〕（智异山(2021)：姜贤祖(吹替)）
+
+01/21 有冈 みなみ(Arioka Minami)（参考中译：有冈南/有冈美波/有冈美奈美）〔东京都〕
+
+01/21 今谷 皆美(Imaya Minami)（旧名：森也みなみ(Moriya Minami)/桃也みなみ(Tomoya Minami)）〔青森県〕
+
+01/21 ラマルファ ミッシェル 立山(Lamalfa Michelle Tateyama)（中译：拉马尔法·米歇尔·立山）〔长野県〕（WIXOSS DIVA(A)LIVE：夜伽穆西卡(ムジカ)）
+
+01/22 丰洲 りお(Toyosu Rio)（参考中译：丰洲里绪）〔兵库県〕
+
+01/22 高泽 拓实(Takasawa Takumi)〔福岛県〕（巨蜘(2021)：高强队长(吹替)）
+
+01/22 藤田 勇气(Fujita Yuuki)（旧名：藤田勇纪）〔福岛県〕（海天使的灯火：矶崎源）
+
+01/22 丸江 俊也(Marue Shunya)〔埼玉県〕（雨色可可 欢迎来到Rainy color！：鸟越阳佳）
+
+01/22 北野 らいか(Kitano Raika)（中译：北野来华）（本名&旧名：南来华(Minami Raika)）〔东京都〕
+
+01/22 咲川 ひなの(Sakikawa Hinano)（参考中译：咲川阳菜乃/咲川雏乃）〔山形県〕（前桥魔女：新里亚珠）
+
+01/22 宫泽 はるな(Miyazawa Haruna)（参考中译：宫泽春菜）〔神奈川県〕（僵尸国度系列：罗伯塔·沃伦(吹替)）
+
+01/22 夏目 久美(Natsume Kumi)〔冈山県〕
+
+01/22 杏寺 圆花(Anji Madoka)〔福岛県〕
+
+01/22 后藤 亚美(Gouto Ami)〔神奈川県〕
+
+01/22 永井 将贵(Naga Masaki)〔福岛県〕
+
+01/22 佐野 尚美(Sano Naomi)〔大阪府〕
+
+01/22 今井 浩平(Imai Kouhei)〔大阪府〕
+
+01/22 饭田 拓见(Handa Takumi)〔宫城県〕
+
+01/22 堀越 省之助(Horikoshi Shounosuke)〔鸟取県〕
+
+01/23 井上 勇一(Inoue Yuuichi)〔东京都〕
+
+01/23 山神 敏史(Yamagaami Satoshi)〔奈良県〕
+
+01/23 多村 彩美(Tamura Ayami)〔爱知県〕
+
+01/23 宫本 真利(Miyamoto Mari)〔东京都〕
+
+01/23 水村 拓未(Mizumuta Takumi)〔大阪府〕
+
+01/23 高田 千裕(Tanada Chihiro)〔静冈県〕
+
+01/23 唐泽 秀平(Karasawa Shouhei)〔长野県〕
+
+01/23 吴羽 蓝依(Kureha Aoi)〔福冈県〕（UniteUp：须惠晴美）
+
+01/23 大木 むつみ(Oki Mutsumi)（参考中译：大木睦美）〔岩手県〕
+
+01/23 品田 美穗(Shinada Miho)〔新潟県〕（地狱少女宵伽：平田有纪）
+
+01/23 仁科 とわ(Nishina Towa)（参考中译：仁科永远）（本名&旧名：长泽惠理(Nagasawa/Nagazawa Eri)）〔茨城県〕
+
+01/23 由姬音 こゆキ(Yukine Koyuki)（参考中译：由姬音小雪）（旧名：渡边由纪(Watanabe Yuki)/天野由纪(Amano Yuki)）【非1981年4月22日东京都出身同名者】〔石川県〕
+
+01/24 日向 未南(Hinata Minami)〔福岛県〕（国王排名：波吉）
+
+01/24 星野 绫乃(Hoshino Ayano)（旧名：齐藤绫乃(Saitou Ayano)）〔枥木県〕
+
+01/24 このみ まこ(Konomi Mako)（参考中译：许斐真子/木实真子）〔京都府〕（撼龙天棺(2021)：于代倩(吹替)）
+
+01/24 多谷 结衣(Taya Yui)〔北海道〕
+
+01/24 藤田 怜奈(Fujita Reina)〔千叶県〕
+
+01/24 桥本 悠平(Hashimoto Yuuhei)〔京都府〕
+
+01/25 高杉 理奈(Takasugi Rina)〔冈山県〕
+
+01/25 神长 壮一郎(Kanimaga Souichirou)〔茨城県〕
+
+01/25 小池 菜摘(Koike Natsumi)〔大阪府〕
+
+01/25 须藤 胜也(Sutou Katsuya)〔神奈川県〕
+
+01/25 佐藤 文哉(Satou Fumiya)〔兵库県〕
+
+01/25 平出 まどか(Hiraida Madoka)〔长野県〕
+
+01/25 宫本 淳(Miyamoto Jun)〔东京都〕
+
+01/25 石原 浩树(Ishihara Hiroki)〔爱知県〕
+
+01/25 高山 俊太朗(Takayama Shuntarou) 〔福冈県〕
+
+01/25 我妻 正崇(Azuma Masataka)〔东京都〕（REIDEEN：才贺淳贵）
+
+01/25 西田 纮二(Nishida Kouji)〔宫崎県〕（脑髓地狱：藤堂英作(OVA)）
+
+01/25 池田 海咲(Ikeda Misaki)〔京都府〕（憧憬成为魔法少女：天川薰子/魔法硫磺）
+
+01/25 さくら ちひろ(Sakura Chihiro)（参考中译：佐仓千寻/樱千寻）（旧名：高桥千寻(Takahashi Chihiro)）〔北海道〕
+
+01/26 鬼冢 真吾(Onitaka Shingo)〔兵库県〕（K：道明寺安迪）
+
+01/26 河合 みのる(Kawai Minoru)（参考中译：河合稔）〔广岛県〕
+
+01/26 今泉 りおな(Imaizumi Riona)（参考中译：今泉里绪菜）〔爱知県〕
+
+01/26 清水 じゅん(Shimizu Jun)（参考中译：清水纯）〔和歌山県〕
+
+01/26 佐藤 友启(Satou Tomohike)〔千叶県〕
+
+01/26 高月 希海(Takatsuki Nozomi)〔东京都〕
+
+01/26 尼子 绚那(Amako Junna)〔广岛県〕
+
+01/27 神木 智佳(Kamiki Chika)〔爱知県〕
+
+01/27 地藏 龙希(Jizou Ryuuki)〔大阪府〕
+
+01/27 大久保 利洋(Ookubo Toshihiro)〔东京都〕
+
+01/27 牧野 秀纪(Makino Hideki)〔千叶県〕
+
+01/27 监物 沙织(Kenmotsu Saori)〔新潟県〕
+
+01/27 近藤 达彦(Kondou Tatsuhiko)〔东京都〕
+
+01/27 牧野 秀纪(Makino Hideki)〔千叶県〕
+
+01/27 中 优一郎(Naka Yuichiro)〔东京都〕
+
+01/27 藤井 达也(Fujii Tatsuya)〔枥木県〕
+
+01/27 夏怜(Karen)〔埼玉県〕
+
+01/27 野田 てつろう(Noda Tetsuro)（旧名&中译：野田哲郎）〔神奈川県〕
+
+01/27 三上 遥香(Mikami Haruka)〔神奈川県〕（见习神明 秘密的COCOTAMA：星野雏）
+
+01/27 堀越 せな(Horikoshi Sena)（参考中译：堀越世奈/堀越濑奈）〔宫崎県〕（最响Kamizmode!：亚山露娜）
+
+01/27 中泽 ミナ(Nakazawa Mina)（参考中译：中泽美奈/中泽美娜）（旧名：中泽みな）（别名：RANA）〔东京都〕（Z/X Code reunion：小笠原瑞穗）
+
+01/28 齐藤 真纪(Satou Maki)〔千叶県〕（游戏王：真崎杏子）
+
+01/28 丸山 なぎ沙(Maruyama Nagisa)（参考中译：丸山凪沙）〔东京都〕
+
+01/28 大江户 よし々(Ooeto Yoshiyoshi)（本名&旧名：大江吉史(Ooe Yoshihito)）〔青森県〕
+
+01/28 南月 悠奈(Minazuki Yuna)（旧名：水濑沙季(Minase Saki)/坂口沙织(Sakaguchi Saori)）〔埼玉県〕
+
+01/28 池崎 美穗(Ikezaki Miho)（旧名：池崎美子(Ikezaki Miko)/池崎リョウ(Ikezaki Ryou)）〔神奈川県〕
+
+01/28 叶山 风花(Hayama Fuuka)〔大阪府〕（Link！Like！LoveLive!莲之空女学院校园偶像俱乐部：徒町小铃(游戏)）
+
+01/28 富泽 惠莉(Tomizawa Eri)〔东京都〕
+
+01/28 神田 优(Kanda Yuu)〔千叶県〕
+
+01/28 桐生 恭兵(Kiryu Kyouhei)〔福岛県〕
+
+01/28 花咲 心优(Hanasaki Miyu)〔大阪府〕
+
+01/28 ミック·ボンド(Mic Bond)〔美国加利福尼亚州〕
+
+01/28 千叶 俊哉(Chiba Toshiya)〔埼玉県〕
+
+01/28 池田 优こ(Ikeda Yuuko)〔兵库県〕
+
+01/28 铃宫 早织(Suzumiya Saori)〔兵库県〕
+
+01/28 林 大(Hayashi Dai)〔埼玉県〕
+
+01/29 三神 要(Mikami Kanano)〔千叶県〕
+
+01/29 纟野 今日子(Itono Kyouko)〔广岛県〕
+
+01/29 二ノ宫 彰(Ninomiya Akira)（中译：二之宫彰）〔奈良県〕
+
+01/29 みけ(Mi-ke)（旧名&别名：藤谷みき(Fujitani Miki)）〔东京都〕
+
+01/29 盐尻 浩规(Shiojiri Hironori)〔群马県〕（闪电十一人猎户座的刻印：析谷共有）
+
+01/29 岩端 卓也(Iwabata Takuya)〔兵库県〕（白猫Project ZERO CHRONICLE：提奥）
+
+01/30 榎本 祥子(Enomoto Shoko)〔埼玉県〕（STRANGE DAWN：奈津野百合）
+
+01/30 川庄 美雪(Kawajou Miyuki)〔茨城県〕（Fireball Charming：多罗丝赛露）
+
+01/30 木村 隼人(Kimura Hayato)〔东京都〕（拉拉队男子！！：染谷夏生）
+
+01/30 桃川 雪(Momokawa Yukina)〔东京都〕
+
+01/30 伊藤 伶奈(Itou Rena)〔千叶県〕
+
+01/30 赤木 惠美(Akagi Megumi)〔冈山県〕
+
+01/30 山口 高靖(Yamaguchi Takayasu)〔神奈川県〕
+
+01/31 犬冢 雅之(Inuzuka Masayuki)〔爱知県〕
+
+01/31 山下 亚矢香(Yamashita Ayaka)〔兵库県〕
+
+01/31 增冈 大介(Masuoka Daisuke)〔埼玉県〕
+
+01/31 降旗 雄司(Furihata Yuuji)〔东京都〕
+
+01/31 石井 花奈(Ishii Kana)〔爱知県〕
+
+01/31 松尾 启路(Matsuo Keiji)〔长崎県〕
+
+01/31 稻熊 悠太郎(Inakuma Yuutarou)〔埼玉県〕
+
+01/31 朱 家勇(Zhu JiaYong)（日文发音：Shu Kayu）〔中国上海〕
+
+01/31 生田 ひかる(Ikuta Hikaru)（参考中译：生田光）〔鹿儿岛県〕
+
+01/31 小堀 幸(Kobori Miyuki)〔东京都〕（吹响吧！上低音号：长濑梨子）
+
+01/31 渡边 智美(Watanabe Tomomi)〔福岛県〕（真实之泪true tears：黑部朋与）
+
+02/01 菅 俊哉(Suga Toshiya)〔枥木県〕
+
+02/01 松本 佳奈(Matsumoto Kana)〔香川県〕
+
+02/01 石川 佑季(Ishikawa Yuki)〔东京都〕
+
+02/01 岛村 知香(Shimamura Chika)〔大阪府〕
+
+02/01 星乃 圭吾(Hoshino Keigo)〔东京都〕
+
+02/01 有村 百惠(Arimura Momoe)〔山口県〕
+
+02/01 藤坂 和史(Fujisaka Kazuhito)〔德岛県〕
+
+02/01 朝雾 友阳(Asakiri Yuuhi)（旧名：足立优树(Adachi Yuuki)）〔石川県〕
+
+02/01 太田 彩华(Oota Ayaka)〔兵库県〕（彼得·格里尔的贤者时间：米切·帕瑞格兰）
+
+02/02 横田 纮一(Yokoda Kouichi)〔福冈県〕（解谜之音：川下驹造）
+
+02/02 青野 菜月(Aono Natsuki)〔东京都〕（8 beat Story♪：橘彩芽(初代)）
+
+02/02 芦田 もえな(Ashida Moena)（本名&旧名&中译：芦田萌菜）〔东京都〕
+
+02/02 一龙斋 贞弥(Ichirousai Teiya)（旧名：原亚弥(Hara Aya)）〔大分県〕（超时空要塞MacrossII --LOVERS AGAIN-：沙织）
+
+02/02 大城 昂辉(Ooshiro Kouki)〔富山県〕
+
+02/02 加藤 れいな(Katou Reina)〔埼玉県〕
+
+02/02 大月 玲奈(Oozuki Reina)〔东京都〕
+
+02/02 柚月 优奈(Yuzuki Yuuna)〔岐阜県〕
+
+02/02 松井 尚吾(Matsui Shougo)〔大阪府〕
+
+02/03 东 和良(Azuma Kazuyoshi)〔岩手県〕
+
+02/03 中村 德也(Nakamura Tokuya)〔东京都〕
+
+02/03 田中 广义(Tanaka Hiroaki)〔广岛県〕
+
+02/03 广濑 未来(Hirose Miku)〔神奈川県〕
+
+02/03 前原 未晴(Maehara Miharu)〔熊本県〕
+
+02/03 津田 夏那(Tsuda Natsuna)〔东京都〕
+
+02/03 雪永 フリア(Yukinaga Furia)（参考中译：雪永芙莉亚）〔东京都〕
+
+02/03 田边 幸辅(Tanabe Kousuke)〔东京都〕（冻牌～地下麻将斗牌录～：圭）
+
+02/03 藤川 マサミ(Fujikawa Masami)（参考中译：藤川雅美）〔大阪府〕（最响Kamizmode!：河太郎）
+
+02/03 有宫 あかり(Arimiya Acali)（其他拼写：Arimiya Akari）（旧名：伴アカリ(Ban Akari)）〔大阪府〕（信长老师的年幼妻子：八事）
+
+02/04 市ノ濑 弘希(Ichinose Hiroki)（中译：市之濑弘希）〔山梨県〕
+
+02/04 纱仓 のり子(Sakura Noriko)（参考中译：纱仓纪子）〔东京都〕
+
+02/04 辉山 新(Kiyama Shin)〔茨城県〕（仙界传封神演义：殷郊(成年)）
+
+02/04 仁见 纱绫(Hitomi Saya)〔山口県〕（地。-关于地球的运动-：约伦塔）
+
+02/04 山口 香林(Yamaguchi Karin)〔北海道〕
+
+02/04 山泽 未纱(Yamazawa Misa)〔福井県〕
+
+02/04 上仓 万实(Kamikura Mami)〔神奈川県〕
+
+02/05 丸山 雪野(Maruyama Yukino)〔埼玉県〕
+
+02/05 远藤 さやか(Etou Sayaka)〔神奈川県〕
+
+02/05 松田 喜实(Matsuda Kimi)〔神奈川県〕
+
+02/05 市桥 尚史(Ichihashi Naofumi)〔千叶県〕
+
+02/05 神田 清夏(Kanda Sayaka)〔新潟県〕
+
+02/05 南山 希来来(Minamiyama Kirara)〔长野県〕
+
+02/05 水希 凛(Mizuki Rin)〔东京都〕
+
+02/05 鹰村 彩花(Takamura Ayaka)〔东京都〕（CUE!：天童悠希）
+
+02/05 田村 好(Tamura Konomi)〔静冈県〕（放学后失眠的你：曲伊咲）
+
+02/05 MAI (Mai)（旧名：辻麻衣(Tsuji Mai)）〔东京都〕（HELLSING：吉姆）
+
+02/05 岛田 奈步(Shimata Naho)（旧名：香坂奈步(Konsaka Naho)）〔大分県〕
+
+02/05 高仓 有加(Takakura Yura)（配偶：利根健太朗）〔大阪府〕（悠久持有者：近卫刀太）
+
+02/05 织部 ゆかり(Oribe Yukari)（参考中译：织部由香里）〔爱知県〕（世界上最美丽的我的女儿(2019)：姜美善(吹替)）
+
+02/06 拜师 みほ(Hayashi Miho)（参考中译：拜师美穗）〔东京都〕
+
+02/06 野宫 一范(Nomiya Kazunori)〔冈山県〕（绯色的碎片：狗谷辽）
+
+02/06 柳田 カンナ(Yanagi Kanna)（参考中译：柳田栞奈）〔埼玉県〕
+
+02/06 内田 爱美(Uchida Mami)〔神奈川県〕（恶魔之谜：桐谷柩&桐谷柩玩偶）
+
+02/06 川上 ひろみ(Kawakami Hiromi)（参考中译：川上弘美/川上广美/川上裕美）〔岛根県〕
+
+02/06 波贺 悠来(Haga Yuki)〔冈山県〕
+
+02/06 上冈 麻佳(Ueoka Asaka)〔冈山県〕
+
+02/06 宫本 若奈(Miyamoto Wakana)〔静冈県〕
+
+02/06 末永 敦亮(Suenaga Nobuaki)〔爱知県〕
+
+02/06 谷口 悠(Taniguchi Yuu)〔山口県〕
+
+02/07 藤本 はるか(Fujimoto Haruka)〔京都府〕
+
+02/07 三轮 隆博(Miwa Takahiro)〔岐阜県〕（某僵尸少女的灾难：东浩）
+
+02/07 菊池 ゆりな(Kikuchi Yurina)（本名&旧名&中译：菊池友茉菜）〔福岛県〕
+
+02/07 新川 爱实(Arakawa Megumi)（旧名：川野爱实(Kawano Megumi)）〔千叶県〕
+
+02/07 渡边 友里江(Watanabe Yurie)（本名：渡边みどり(Watanabe Midori)）〔广岛県〕
+
+02/07 川岸 上子(Kawagishi Jouko)〔大阪府〕（鸣鸟不飞(动画剧场版)：矢代(少年时代)）
+
+02/07 和仓 やよい(Wakura Yayoi)（中译：和仓弥生）（旧名：新宅弥生(Shintani Yayoi)）〔福冈県〕
+
+02/07 木场 ヨシユキ(Koba Yoshiyuki)（本名&旧名&中译：木场欣之）（别名：小柴雪代）〔神奈川県〕
+
+02/08 所河 ひとみ(Shougawa Hitomi)（参考中译：所河瞳/所河仁美）（旧名：藤川ひとみ(Fujikawa Hitomi)）〔千叶県〕
+
+02/08 舞原 铃(Maihara Suzu)〔东京都〕
+
+02/08 松原 知也(Matsubara Tomoya)〔东京都〕
+
+02/08 小杉 史哉(Kosugi Fumiya)〔富山県〕
+
+02/08 宫田 正宗(Miyata Masamune)〔东京都〕
+
+02/08 石山 真理惠(Ishiyama Marie)〔东京都〕
+
+02/08 藤野 裕规(Fujino Yuuki)〔东京都〕
+
+02/08 吉川 政博(Yoshikawa Masahiro)〔北海道〕
+
+02/09 村上 麻衣(Murakami Mai)〔福冈県〕
+
+02/09 佐仓 ゆき(Sakura Yuki)〔奈良県〕
+
+02/09 田村 僚佑(Tamura Ryousuke)〔新潟県〕
+
+02/09 泽幡 枫(Sawahata Kaede)〔神奈川県〕
+
+02/09 迹见 あい(Atomi Ai)（中译：迹见爱以）（别名：爱以）〔埼玉県〕
+
+02/09 阿部 菜摘子(Abe Natsuko)〔神奈川県〕（Momentary Lily:：河津百合）
+
+02/09 相川 遥花(Aikawa Haruka)〔静冈県〕（江户前的废材精灵：樱庭高丽）
+
+02/09 神野 ひとみ(Kanno Hitomi)（参考中译：神野瞳）（旧名：かんのひとみ）【非1965年富山县出身者】〔神奈川県〕
+
+02/09 今柳 りさ(Imayanagi Risa)（中译：今柳理纱）（本名&旧名：大椰理纱(Oonagi Risa)）〔埼玉県〕（沦落者之夜：黛安娜·布莱克贝尔）
+
+02/10 樱 弥惠(Sakura Yae)〔埼玉県〕（自称贤者帝子的贤者：芙莉卡）
+
+02/10 内海 祐纪(Utsumi Yuuki)（旧名：上田早纪(Ueda Saki)）〔神奈川県〕
+
+02/10 前田 绘梦(Maeda Emu)（旧名：前田爱美(Maeda Manami)）〔德岛県〕（机器人少女Z+：空魔兽Grangen）
+
+02/10 中村 ちせ(Nakamura Chise)（旧名&中译：中村知世）【非1986年9月11日福岛县同名者】〔岐阜県〕（白猫Project ZERO CHRONICLE：西玛）
+
+02/10 大室 佳奈(Onmuro Kana)〔广岛県〕
+
+02/10 杉泽 摩耶(Sugisawa Maya)〔秋田県〕
+
+02/10 谷古 美玲(Taniko Mirei)〔东京都〕
+
+02/10 京井 幸(Kyoui Yuki)〔枥木県〕
+
+02/10 石井 隆之(Ishii Takayuki)〔茨城県〕
+
+02/10 对马 千纱(Tsushima Chisa)〔青森県〕
+
+02/11 片山 里惠(Katayama Rie)〔和歌山県〕
+
+02/11 长井 将孝(Nagai Masataka)〔东京都〕
+
+02/11 日荣 春华(Hie Haruka)〔大阪府〕
+
+02/11 德弘 早纪(Tokuhiro Saki)〔埼玉県〕
+
+02/11 河野 みさき(Kouno Misaki)〔三重県〕
+
+02/11 奥野 えりな(Okuno Erina)（旧名&中译：奥野惠梨奈）〔福冈県〕
+
+02/11 藤沼 建人(Fujinema Kento)〔神奈川県〕（大怪兽RUSH ULTRAFRONTIER：美菲拉斯星人简特）
+
+02/11 成濑 未亚(Naruse Mia)（旧名：柚原有里(Yunohara Ari)/野野濑ミオ(Nonose Mio)/なるせみあ）〔委内瑞拉/东京都〕（爱与魔法：柊杏璃）
+
+02/12 森下 千咲(Morishita Chisaki)〔神奈川県〕（一个人的○○小日子：一里波奇）
+
+02/12 齐藤 隼一(Saitou Junichi)〔福岛県〕（足球风云！Goal to Future：园田拓海）
+
+02/12 莲池 龙三(Hasuike Ryouzou)〔广岛県〕（DEAR BOYS：武内纯一）
+
+02/12 长南 翔太(Chonan Syota)〔山形県〕（排球少年!!：福永招平）
+
+02/12 中山 大吾(Nakayama Daigo)〔东京都〕
+
+02/12 西川 公规(Nishikawa Masanori)〔京都府〕
+
+02/12 丹 翔史(Tan Takafumi)〔东京都〕
+
+02/12 船津丸 葵(Funatsumaru Aoi)〔东京都〕
+
+02/12 滑川 洋平(Namekawa Youhei)〔茨城県〕
+
+02/12 雪乃 さやか(Yukino Sayaka)〔长野県〕
+
+02/13 尾崎 丽奈(Ozaki Reina)〔神奈川県〕
+
+02/13 广川 来美(Hirokawa Kurumi)〔北海道〕
+
+02/13 岬 凛(Misaki Rin)〔静冈県〕
+
+02/13 木村 真悠(Kimura Mayu)〔埼玉県〕
+
+02/13 涩 谷谅(Shibuya Ryo)〔东京都〕
+
+02/13 饭富 梓(Iitomi Azusa)（旧名：片冈梓(Kataoka Azusa)）〔爱知県〕
+
+02/13 名村 幸太朗(Namura Yukitarou)（本名&旧名：名村幸太郎）〔东京都〕（桑尼明星梦：尼克·哈里斯(吹替)）
+
+02/13 华木 ミヤ(Hanaki Miya)（中译：华木宫）（旧名：宫下富美子(Miyashita Fumiko)/宫下富三子）〔福冈県〕（数码宝贝驯兽师之王：小野寺惠）
+
+02/14 大水 忠相(Oomizu Tadasuke)〔长崎県〕（My Merry May：渡良濑恭平）
+
+02/14 天野 七瑠(Amano Naru)〔熊本県〕（平假名男子：あんこ）
+
+02/14 长濑 ユウ(Nagase Yuu)（旧名&中译：长濑祐）〔神奈川県〕
+
+02/14 嵜本 正和(Sakimoto Masakazu)〔广岛県〕
+
+02/14 志村 まり子(Shimura Mariko)〔宫城県〕
+
+02/14 积田 阳乃香(Tsumita Honoka)〔东京都〕
+
+02/14 千先 广大(Sensaki Koudai)〔富山県〕
+
+02/14 松田 いよ(Matsuda Iyo)〔福冈県〕
+
+02/14 山藤 桃子(Yamafuji Momoko)〔埼玉県〕
+
+02/15 葛城 爱梨(Katsuragi Eri)〔新潟県〕
+
+02/15 吉本 泰洋(Yoshimoto Yasuhiro)〔埼玉県〕
+
+02/15 鹫见 昂大(Sumi Takahiro)〔岐阜県〕
+
+02/15 高柳 亚弓(Takayanagi Ayumi)〔北海道〕
+
+02/15 安田 梓司(Yasuda Shinji)〔？？？〕
+
+02/15 黑木 沙织(Kuroki Saori)〔广岛県〕
+
+02/15 佐佐木 智代(Sasaki Tomoyo)〔东京都〕（少年同盟2：内田百合）
+
+02/15 もり なつこ(Mori Natsuko)（旧名&中译：盛奈津子）〔大阪府/鸟取県〕
+
+02/15 筏井 かなえ(Ikadai Kanae)（参考中译：筏井香苗）〔爱知県〕（碧蓝航线：蒲）
+
+02/15 结川 あさき(Yuikawa Asaki)（参考中译：结川麻希/结川朝纪/结川朝希）〔东京都〕（少主别跑！：北条时行）
+
+02/15 水森 ちこ(Mizumori Chiko)（参考中译：水森千子）（本名&旧名：杉村ちか子(Sugimura Chikako)）〔北海道〕
+
+02/15 古仲 可奈(Konaka Kana)〔千叶県〕（联盟空军航空魔法音乐队光明魔女：玛利亚·玛格达莱妮·迪特里希(Maria Magdalene Dietrich)(二代)）
+
+02/16 高冈 千纮(Takaoka Chihiro)（配偶：根本幸多）〔大阪府〕
+
+02/16 柚木 梨沙(Yuzuki Risa)（别名：Risa Yuzuki）〔兵库県〕（国王游戏：中岛美咲）
+
+02/16 河合 纱希子(Kawai Sakiko)〔东京都〕（ヒーローになれなかったヒーロー：日下部太郎）
+
+02/16 山本 浩司(Yamamoto Kouji)〔？？？〕
+
+02/16 十时 莉音(Totoki Rio)〔爱媛県/广岛県〕
+
+02/16 新尾 友佳子(Shino Yukako)〔广岛県〕
+
+02/16 平冈 みなみ(Hiraoka Minami)〔兵库県〕
+
+02/16 苍乃 辉(Aono Hikaru)〔广岛県〕
+
+02/17 槙乃 萌美(Mikino Tomoni)〔岛根県〕
+
+02/17 植田 恭司(Ueda Kyoji)〔东京都〕
+
+02/17 盐味 かをる(Shiomi Kaworu)（旧名&中译：盐味薰）〔埼玉県〕
+
+02/17 中山 岚岚(Nakayama Ranran)（旧名：中山大助(Nakayama Daisuke)）〔熊本県〕
+
+02/17 樱月 ヒトミ(Outsuki Hitomi)（中译：樱月瞳）（旧名：中林瞳(Nakabayashi Hitomi)）〔福冈県〕
+
+02/18 川岛 やよい(Kawashima Yayoi)（参考中译：川岛弥生）〔爱知県〕
+
+02/18 东 久仁彦(Higashi Kunihiko)〔佐贺県〕（镇西八郎为朝：伊东佑经）
+
+02/18 尾々谷 恭代(Ootani Takayo)（旧名：大谷恭代(Ootani Takayo)）〔埼玉県〕
+
+02/18 こうち 澪(Kouchi Mio)（中译：河内澪）（旧名：大河内澪(Ookouchi Mio)）〔大阪府〕
+
+02/18 伊藤 あすか(Itou Asuka)（参考中译：伊藤明日香）〔神奈川県〕（碧蓝航线：皇家方舟）
+
+02/18 渡井 奏斗(Watari Kanato)（旧名：渡井奏斗(Watarari Kanato)）〔枥木県〕（阿尔斯的巨兽：基里斯）
+
+02/18 泽村 真希(Sawamura Maki)（旧名：小泽雅子(Ozawa Masako)）〔神奈川県〕（星际少年队：神龙·贝尔维帝）
+
+02/18 永田 绘美(Nagata Emi)〔长崎県〕
+
+02/18 冈田 三利(Okada Sanri)〔兵库県〕
+
+02/18 柴田 伦佳(Shibata Rinka)〔石川県〕
+
+02/19 龟田 望美(Kameda Nozomi)〔神奈川県〕
+
+02/19 北村 妙子(Kitamura Taeko)〔富山県〕
+
+02/19 大下 昌之(Ooshita Masayuki)〔广岛県〕
+
+02/19 福岛 美里衣(Fukushim Mirii)〔东京都〕
+
+02/19 白石 れい(Shiraishi Rei)（参考中译：白石怜）〔长野県〕
+
+02/19 森 はるか(Mori Haruka)（旧名&中译：森晴香）〔三重県〕
+
+02/19 三宅 贵洋(Miyake Takahiro)〔东京都〕（足球骑士：岩本一成）
+
+02/19 市邑 咲(Ichimura Saki)〔神奈川県〕（人马少女的烦恼：爱甲时惠）
+
+02/19 小岛 敬介(Kojima Keisuke)〔东京都〕（キャスパーのオバケ学园：モスヘッド）
+
+02/19 春村 奈奈(Harumura Nana)〔茨城県〕（冰剑的魔术师将要统一世界：艾丽莎·格里菲斯）
+
+02/19 兼政 郁人(Kanemasa Ikuto)（旧名：大兼郁人(Okane Ikuto)）〔东京都〕（放学后失眠的你：羽昨健）
+
+02/19 七海 こころ(Nanami Kokoro)（参考中译：七海心）〔东京都〕（Z/X Code reunion：罗泽玛丽(迷迭香)）
+
+02/19 郁原 ゆう(Kabara Yuu)（参考中译：郁原由宇/郁原优）〔千叶県〕（しんぐんデストロ～イ!：大山咲(游戏)）
+
+02/20 佐藤 タロー(Satou Taro)（旧名&中译：佐藤太郎）〔群马県〕
+
+02/20 高城 みつ(Takashiro Mitsu)（参考中译：高城美津）〔宫城県〕
+
+02/20 晴一 ユウ(Haruichi Yuu)（参考中译：晴一优/晴一雄）〔高知県〕
+
+02/20 柿田 よしくに(Kakita Yoshikuni)（本名&旧名&中译：柿田益邦）（其他中译(错译)：柿田芳邦）〔东京都〕
+
+02/20 茉莉邑 薰(Marimura Kaoru)（本名：铃木薰美(Suzuki Kumi)）〔神奈川県〕（金田一少年事件簿R：早宫葵）
+
+02/20 小野 绫子(Ono Ayako)〔福岛県〕
+
+02/20 富田 泰代(Tomita Yasuyo)〔东京都〕
+
+02/20 芳村 れいな(Yoshimura Reina)〔大阪府〕
+
+02/20 佐藤 太郎(Satou Tarou)〔群马県〕
+
+02/20 笹井 雄吾(Sasai Yuugo)〔北海道〕
+
+02/20 菅泽 公平(Sugesawa Kouhei)〔长野県〕
+
+02/20 藤枝 雅人(Fujieda Masato)〔茨城県〕
+
+02/21 吉田 孝(Yoshida Takashi)〔群马県〕
+
+02/21 高濑 友(Takase Yu)〔山口県〕
+
+02/21 平本 昌央(Hiramoto Masao)〔山口県〕
+
+02/21 内山 典子(Uchiyama Noriko)〔长野県〕
+
+02/21 土崎 光(Tsuchizaki Hikaru)〔秋田県〕
+
+02/21 小林 悠希(Kobayashi Yuki)〔北海道〕
+
+02/21 清里 孝也(Kiyosato Takaya)〔北海道〕
+
+02/21 胜见 真之助(Katsumi Shinnosuke)〔东京都〕
+
+02/21 泉 纱绪里(Izumi Saori)（旧名：泉沙绪里）〔东京都〕
+
+02/21 植木 慎英(Ueki Shinei)〔京都府〕（约定的梦幻岛：冬）
+
+02/21 佐仓 奈奈(Sakura Nana)（旧名：砂仓加奈子(Sakura Kanako)）〔青森県〕
+
+02/21 平流 エレン(Taira Eren)（其他拼写：Taira Ellen）（参考中译：平流埃伦/平流艾莲）〔冈山県〕
+
+02/22 樋口 结美(Higuchi Yumi)〔北海道〕（日常：小菲）
+
+02/22 神乐 千歌(Kagura Chika)〔大阪府〕（ODDTAXI：玲奈）
+
+02/22 小林 真纪(Kobayashi Maki)〔滋贺県〕（恋姬无双：马超）
+
+02/22 村濑 克辉(Murase Katsuki)〔东京都〕（滨虎/Re:␣滨虎：斯利）
+
+02/22 冈崎 加奈(Okazaki Kana)〔新潟県〕（妻子变成小学生。：守屋好美）
+
+02/22 小森 结梨(Komori Yuri)〔神奈川県〕（偶像大师灰姑娘女孩 U149：古贺小春）
+
+02/22 齐藤 マサキ(Saitou Masaki)（参考中译：齐藤正树/齐藤正木/齐藤雅树）〔青森県〕
+
+02/22 三井 好美(Mitsui Yoshimi)〔爱知県〕
+
+02/22 司 薰(Tsukasa Kaoru)〔千叶県〕
+
+02/22 汤川 叶月(Yukawa Hazuki)〔神奈川県〕
+
+02/22 清藤 圭(Kiyofuji Kei)〔福冈県〕
+
+02/22 小川 凌辉(Ogawa Ryoki)〔京都府〕
+
+02/23 谷川 立纪(Tanikawa Ritsuki)〔爱知県〕
+
+02/23 唐仁原 正幸(Tojinbara Masayuki)〔爱知県〕
+
+02/23 岛 彩乃(Shima Ayano)〔富山県〕
+
+02/23 钓谷 伸树(Tsuritani Nobuki)〔千叶県〕
+
+02/23 樱庭 みき(Sakuraba Miki)〔？？？〕
+
+02/23 岩河 拓吾(Iwakawa Takugo)（旧名：岩川拓吾）〔东京都〕
+
+02/23 高野 康弘(Takano Yasuhoro)〔福岛県〕（星座彼氏：橘守生）
+
+02/23 小孙 さくら(Komago Sakura)（参考中译：小孙樱）〔神奈川県〕
+
+02/23 丹泽 晃之(Tanzawa Teruyuki)〔埼玉県〕（武神(2012)：金俊(吹替)）
+
+02/23 关 ありあ(Seki Aria)（参考中译：关亚里亚）〔神奈川県〕（什么情况都不知道的转校生一个劲的凑过来。：柳泽惠）
+
+02/24 ハリィ マン(Harii Man)（旧名：张本龙马(Harimoto Ryuma)）〔爱知県〕
+
+02/24 泽崎 アケミ(Sawazaki Akemi)（参考中译：泽崎明美）（旧名：泽崎あけみ）〔大阪府〕
+
+02/24 伏见 はる香(Fushimi Haruka)（参考中译：伏见春香）〔爱知県〕（莎木the Animation：原崎望）
+
+02/24 さいとう よしえ(Saitou Yoshie)（旧名&中译：斋藤圭惠）（其他中译：斋藤佳惠(疑为笔误)）〔神奈川県〕
+
+02/24 小岛 游园地(Kojima Yunenchi)〔神奈川県〕
+
+02/24 古川 绘里奈(Furukawa Erina)〔东京都〕
+
+02/25 谷口 祐贵(Taniguchi Yuuki)〔滋贺県〕
+
+02/25 坂本 悠里(Sakamoto Yuuri)〔兵库県〕
+
+02/25 日野 佑美(Hino Yumi)〔大分県〕
+
+02/25 稻冈 晃大(Inaoka Koudai)〔奈良県〕
+
+02/25 月城 莉奈(Tsukishiro Rina)〔静冈県〕
+
+02/25 高桥 美月(Takahashi Mizuki)〔千叶県〕
+
+02/25 横田 彩(Yokoda Aya)〔东京都〕（碧蓝航线：休斯顿）
+
+02/25 北元 杏奈(Kitamoto Anna)（旧名：北本杏奈）〔千叶県〕
+
+02/25 楠ノ木 球菜(Kusunoki Marina)（中译：楠木球菜）（旧名：楠まりな(Kusunoki Marina)）〔神奈川県〕
+
+02/25 结下 みちる(Yuimoto Michiru)（参考中译：结下满）（旧名：结本ミチル）〔东京都〕（七色星露：秋姬李）
+
+02/25 池田 果奈子(Ikeda Kanako)〔神奈川県〕（探险活宝/Adventure Time：Beemo-Boy Version 2600/BMO-Boy Ver. 2600(吹替)）
+
+02/26 千叶 瑞己(Chiba Mizuki)〔宫城県〕（number24：玉城莲）
+
+02/26 大竹 美佳(Ootaka Mika)〔茨城県〕（推理之绊：白长谷圭）
+
+02/26 小牧 未侑(Komaki Miyu)〔埼玉県〕（哥哥锻炼!EX：早乙女静乃）
+
+02/26 阳向 ゆき(Hinata Yuki)（参考中译：阳向由纪/阳向幸）〔京都県〕
+
+02/26 佐佐 碧唯(Sasa Aoi)（本名&旧名：佐佐霞(Sasa Kasumi)）〔？？？〕
+
+02/26 松久保 いほ(Matsubo Iho)（旧名：早川いほ(Hayakawa Iho)/松久保维穗(中译)）〔鹿儿岛県〕（新鬼武者 DAWN OF DREAMS：阿伦）
+
+02/26 元村 哲也(Motomura Tetsuya)〔广岛県〕
+
+02/26 渡边 浩司(Katanabe Kouji)〔千叶県〕
+
+02/26 尾高 庆安(Otaka Yoshiyasu)〔冈山県〕
+
+02/26 上野 江里香(Kamino Erika)〔大阪府〕
+
+02/27 远藤 武(Entou Takeshi)〔新潟県〕
+
+02/27 谷口 惠美(Taniguhi Emi)〔岐阜県〕
+
+02/27 野田 爱佳(Noda Aika)〔鸟取県〕
+
+02/27 前田 美果(Maeda Mika)〔富山県〕
+
+02/27 河濑 诗(Kawase Uda)〔北海道〕（22/7：斋藤妮可儿(二代)））
+
+02/27 时永 ヨウ(Tokinaga You)（旧名&中译：时永洋）〔东京都〕
+
+02/27 今井 诗子(Imai Utako)〔茨城県〕（Sakura Quest：四之宫千贺子）
+
+02/27 泽田 龙一(Sawada Ryuichi)（本名&旧名：荒川翼(Arakawa Tsubasa)）〔东京都〕
+
+02/27 伊澄 ちひろ(Isumi Chihiro)（中译：伊澄千寻）（本名&旧名：稻本千寻(Inamoto Chihiro））〔千叶県〕
+
+02/27 岛津 ひかる(Shimazu Hikaru)（参考中译：岛津光）（本名&旧名：岛津伸治(Shimazu Nobuharu/Shinji)）〔福冈県〕
+
+02/27 绫川 りの(Ayakawa Rino)（中译：绫川梨乃）（别名：江上梨乃(Egami Rino)(本名)/梨乃(Rino)）〔东京都〕（水色：片濑雪希）
+
+02/27 小山 さほみ(Koyama Sahomi)（参考中译：小山沙穗美）（旧名：伊藤さほ(Itou Saho)/梅原千寻(Umehara Chihiro)）〔广岛県〕（真·恋姬†无双：张宝）
+
+02/28 植田 千寻(Ueda Chihiro)〔大阪府〕（魔偶马戏团：才贺胜）
+
+02/28 村濑 迪与(Murase Michiyo)〔岐阜県〕（团地友夫：佐山真理）
+
+02/28 ふしだ りほ(Fujida Riho)（旧名：ふしだ里穗/伏田里穗(本名&中译)）〔京都府〕
+
+02/28 秋山 幸辉(Akiyama Koki)〔滋贺県〕
+
+02/28 小平 桃歌(Odaira Momoka)〔枥木県〕
+
+02/29 田岛 裕也(Tajima Yuuya)〔茨城県〕
+
+03/01 辻井 健吾(Tsujii Kengo)〔奈良県〕
+
+03/01 日向 朔公(Hyuga Saku)〔宫崎県〕
+
+03/01 佐藤 圆香(Satou Madoka)〔福岛県〕
+
+03/01 宇田川 紫衣那(Udagawa Shiina)〔东京都〕
+
+03/01 高桥 美咲子(Takahashi Misako)〔滋贺県〕
+
+03/01 沼泽 龙一郎(Numazawa Ryuichiro)〔东京都〕
+
+03/01 石川 蓝(Ishikawa Ai)〔北海道〕（消防厅旁警察厅系列：宋雪(吹替)）
+
+03/01 橘 润二(Tachibana Junji)（本名&旧名：佐藤淳二(Satou Junji)）〔埼玉県〕
+
+03/01 三好 りえ(Miyoshi Rie)（参考中译：三好理惠）〔大阪府〕（好运查理/查莉成长日记：盖比·邓肯(吹替)）
+
+03/01 丸山 ナオミ(Maruyama Naomi)（参考中译：丸山直美）（别名：丸山直稔(乙女名义)）〔青森県〕（动画同好会：六本木透）
+
+03/01 伊藤 はるか(Itou Haruka)（旧名&中译：伊藤晴香）（其他中译：伊藤遥香(错译)）〔北海道〕【非7月6日东京都出身同音者】（Lapis Re:LiGHTs：菲奥娜(Fiona)）
+
+03/02 羽饲 まり(Hagai Mari)（本名&旧名&中译：羽饲真梨）〔爱知県〕（加速世界：有田沙耶）
+
+03/02 西岛 阳一(Nishijima Youichi)〔东京都〕
+
+03/02 菊地 达弘(Kikuchi Tatsuhiro)〔静冈県〕
+
+03/02 小田 真由美(Oda Mayumi)〔鹿儿岛県〕
+
+03/02 早川 隆之(Hayakawa Takayuki)〔岐阜県〕
+
+03/02 笠原 幸之助(Kasahara Kounosuke)〔岐阜県〕
+
+03/03 川端 快彰(Kawabata Yoshiaki)〔兵库県〕
+
+03/03 沟口 谦吾(Mizoguchi Keigo)〔神奈川県〕
+
+03/03 多田 沙绫(Tada Saaya)〔东京都〕
+
+03/03 本间 理奈(Honma Rina)〔埼玉県〕
+
+03/03 好田 爱菜(Yoshida Aina)〔神奈川県〕
+
+03/03 八百屋 杏(Yaoya Kyou)〔东京都〕（霸穹封神演义：碧霄）
+
+03/03 竹间 千ノ美(Takema Chinomi)（中译：竹间千乃美）〔神奈川県〕（SHUFFLE!：红蔷薇抚子）
+
+03/03 ハートル 实沙(Hartle Misa)（中译：哈特尔·实沙）（本名&旧名：小笠原实沙(Ogasawara Misa)）〔长崎県〕
+
+03/03 真宫 凉(Mamiya Ryou)〔大阪府〕（联盟空军航空魔法音乐队光明魔女：埃拉·佩维基·林纳玛(Aila Päivikki Linnamar)）
+
+03/04 土谷 麻贵(Tsuchiya Maki)〔神奈川県〕（食灵零：二阶堂桐）
+
+03/04 星波 绫(Hoshinami Aya)〔大阪府〕（犀利人妻(2010)：黎薇恩(吹替)）
+
+03/04 小林 俊夫(Kobayashi Toshio)〔东京都〕（妄想代理人：笠秋彦）
+
+03/04 葵 海人(Aoi Kaito)（旧名：久山修平(Kuyama Shouhei)）〔千叶県〕
+
+03/04 石岛 久仁子(Ishijima Kuniko)〔茨城県〕（高铁英雄：拉迪亚公主）
+
+03/04 古川 由利奈(Hurukawa Yurina)〔神奈川県〕（干物妹小埋：橘·希尔芬福特）
+
+03/04 辰 まなみ(Tatsu Manami)〔东京都〕
+
+03/04 宫负 润(Miyaoi Jun)〔千叶県〕
+
+03/04 森田 めぐみ(Morita Megumi)〔东京都〕
+
+03/04 高桥 麻里子(Takahashi Mariko)〔东京都〕
+
+03/04 大西 真央(Oonishi Mao)〔鸟取県〕
+
+03/04 御幸 真菜(Miyuki Mana)〔静冈県〕
+
+03/04 青户 浩香(Aoto Hiroka)〔福岛県〕
+
+03/05 畠山 广信(Hakeyama Hironobu)〔埼玉県〕
+
+03/05 梶原 彰(Kajiwara Akira)〔神奈川県〕
+
+03/05 结城 俊和(Yuki Toshikazu)〔神奈川県〕
+
+03/05 转正 浩充(Tenshou Hiromitsu)〔石川県〕
+
+03/05 齐藤 明日美(Saitou Asumi)〔宫城県〕
+
+03/05 武田 爱奈(Takeda Aina)（旧名：いちいちご(Ichi Ichigo)）（本名：）〔福岛県〕（22/7：柊蕾）
+
+03/05 长谷川 知子(Hasegawa Tomoko)〔北海道〕（キックオフ2002：高见泽美纪）
+
+03/05 あきやま かおる(Akiyama Kaoru)（参考中译：秋山薰）（别名：ハコファクトリィ）〔埼玉県〕（尼尔自动人形：辅助机器人153）
+
+03/06 留冬 蓝名(Rutou Aina)〔兵库県〕（IDOLLS!：蓝名）
+
+03/06 福田 芽衣(Fukuda Mei)〔新潟県〕（轻羽飞扬：雄胜冴子）
+
+03/06 古梨 柚希(Konashi Yuki)（旧名：藤崎优希(Fujisaki Yuki)）〔兵库県〕
+
+03/06 远藤 淳(Endou Atsushi)〔福岛県〕
+
+03/06 泰川 凛太郎(Yasukawa Rintarou)〔兵库県〕
+
+03/06 平田 由季(Hirata Yuki)〔三重県〕
+
+03/06 堀川 辉幸(Horikawa Kiyuki)〔东京都〕
+
+03/06 蜂谷 隆良(Hachiya Takara)〔冈山県〕
+
+03/06 堂坂 晃三(Douzaka Kouzou)〔埼玉県〕
+
+03/07 宫崎 智荣子(Miyazaki Mieko)〔东京都〕
+
+03/07 友道 惠(Tomomichi Megumi)〔富山県〕
+
+03/07 镰田 匠(Kamada Takumi)〔大阪府〕
+
+03/07 帆足 桃子(Hoashi Momoko)〔福冈県〕
+
+03/07 萩乃 水城(Hagino Mizuki)〔神奈川県〕
+
+03/07 大冢 有纪(Ootsuka Yuuki)（旧名：大冢侑希）〔东京都〕
+
+03/07 桶谷 菜穗(Oketani Naho)〔石川県〕（灵能百分百：土豆）
+
+03/07 弦德(Gentoku)（旧名：福井宣博(Fukui Nobuhiro)）〔佐贺県〕
+
+03/07 寺井 らん(Terai Ran)（参考中译：寺井兰）〔东京都·美国国籍〕
+
+03/07 大久保 英惠(Ookubo Hanae)〔神奈川県〕（PUPIPO：圆田美代理）
+
+03/07 井原 晴香(Ihara Haruka)（旧名：庵原遥华(Ihara Haruka)）〔长崎県〕
+
+03/07 山本 祥太(Yamamoto Shouta)〔大阪府〕（战斗之魂 烈火灵魂：紫堂信玄）
+
+03/07 城内 美登理(Shironoruchi Midori)（旧名：中岛裕美(Nakajima Hiromi)）〔东京都〕
+
+03/08 石川 贤利(Ishikawa Kento)〔埼玉県〕（白箱：向井优地）
+
+03/08 宫下 道央(Miyashita Michio)〔大阪府〕（棒球大联盟：三宅阳介）
+
+03/08 藤崎 雄大(Fujisaka Yuuta)（旧名：目崎雄大(Mezaki Yuuta)）〔神奈川県〕
+
+03/08 堀 大希(Hori Taiki)（配偶：桐谷蝶蝶）〔大阪府〕（战国☆天堂-极-：宇喜多秀家）
+
+03/08 山本 翔(Yamamoto Shou)〔爱媛県〕
+
+03/08 大森 将(Oomori Masashi)
+
+03/08 株田 裕介(Yusuke Kabuta)〔富山県〕
+
+03/08 织田 亚希(Orida Aki)〔神奈川県〕
+
+03/08 高坂 宙(Kousaka Hiroshi)〔东京都〕
+
+03/08 井上 诗央里(Inoue Shiori)〔高知県〕
+
+03/09 岩井 遥(Iwai Haruka)〔东京都〕
+
+03/09 泷谷 将太(Takitani Shouta)〔兵库県〕
+
+03/09 坂本 佳一(Sakamoto Keiichi)〔群马県〕
+
+03/09 音羽 里奏(Otowa Rina)〔东京都〕
+
+03/09 带谷 俊太郎(Obiya Shoutarou)〔北海道〕
+
+03/09 美坂 咲良(Misaka Sakura)〔宫城県〕
+
+03/09 平冢 未玖(Hitsuka Miku)〔埼玉県〕（蓝色时期：海野）
+
+03/09 高梁 りつ(Takahashi Ritsu)（参考中译：高梁律）〔神奈川県〕
+
+03/09 明岛 ゆうり(Akeshima Yuuri)（参考中译：明岛悠里/明岛优里）〔冲绳県〕
+
+03/10 井之上 润(Inoue Jun)〔爱知県〕（福星小子(2022)：北斗）
+
+03/10 大坪 纯子(Ohtsubo Junko)〔广岛県〕（超级麻将狂：早见明菜）
+
+03/10 近村 望实(Chidamura Bozomi)〔茨城県〕（只有神知道的世界：寺田京）
+
+03/10 庄司 胜也(Shouji Katsuya)〔茨城県〕
+
+03/10 松本 花雪(Matsumoto Kayuki)〔宫城県〕
+
+03/10 合田 绘利(Goda Eri)〔山口県〕
+
+03/10 东城 未来(Tougi Mikuru)〔东京都〕
+
+03/10 日野 なつみ(Hino Natsumi)〔东京都〕
+
+03/10 镝木 真央(Kaburagi Mao)〔？？？〕
+
+03/11 奥 正史(Oku Masafumi)〔千叶県〕
+
+03/11 谷 始央理(Tani Shiori)〔东京都〕【1998及以前】
+
+03/11 高濑 桃佳(Takase Momoka)〔埼玉県〕
+
+03/11 川井 真纪(Kawai Maki)〔东京都〕
+
+03/11 胁田 龙藏(Wakita Ryouzou)〔鹿儿岛県〕
+
+03/11 中井 美琴(Nakai Mikoto)〔东京都〕
+
+03/11 长宗 春佳(Nagamune Haruka)〔东京都〕
+
+03/11 高桥 荣一(Takahashi Eiichi)〔千叶県〕
+
+03/11 细谷 カズヨシ(Hosoya Kazuyoshi)（参考中译：细谷和义）〔静冈県〕
+
+03/11 丹羽 哲士(Niwa Satoshi)〔神奈川県〕（喧哗独学(格斗实况)：志村光太）
+
+03/12 矢野 龙太(Yano Ryouta)〔神奈川県〕（天穗之咲稻姬：田右卫门）
+
+03/12 北田 理道(Kitada Masamichi)〔东京都〕（新网球王子 U-17 WORLD CUP：吉恩·菲茨杰拉德）
+
+03/12 田中 茉理花(Tanaka Marika)（旧名：田中まりか）〔埼玉県〕（信长老师的年幼妻子：星丘友里）
+
+03/12 山田 真一(Yamada Shinichi)〔兵库県〕（勇者王：冰龙、炎龙、超龙神、风龙、雷龙、擎龙神、幻龙神、强龙神）
+
+03/12 高 一星(Kou Issei)〔东京都〕
+
+03/12 水原 真也(Mizuhara Shinya)〔广岛県〕
+
+03/12 东 彩佳(Higashi Saika)〔熊本県〕
+
+03/13 桥本 和(Hashimoto Nodoka)〔福冈県〕
+
+03/13 小峰 华子(Komine Hanako)〔茨城県〕
+
+03/13 矢吹 真央(Yabuki Mao)〔福岛県〕
+
+03/13 杉原 睦(Sugihara Mutsumi)〔神奈川県〕
+
+03/13 安达 贵英(Anda Takahide)〔东京都〕（神灵狩：田口治）
+
+03/13 み～こ(MI-KO)〔东京都〕（地上最强新娘：卯月爱丽丝）
+
+03/13 香里 有佐(Kouri Arisa)〔大阪府〕（狐狸之声：童初云）
+
+03/13 岩山 ちひろ(Iwayama Chihiro)（参考中译：岩山千寻）〔北海道〕（Infinite Stratos：镜凪）
+
+03/13 秋乃(Akino)（旧名：诸富有香(Morudomo Yuka)/春井柚佳(Harui Yuka)）〔千叶県〕（只有神知道的世界：理奈）
+
+03/13 大渊 野野花(Oobuchi Nonoka)〔琦玉県〕（S级怪兽《贝希摩斯》被误认成小猫，成为精灵女孩的骑士(宠物)一起生活：莉莉）
+
+03/14 REIKA(Reika)（本名：井上丽花(Inoue Reika)）〔东京都〕
+
+03/14 丰岛 修平(Toyoshima Syuhei)〔千叶県〕
+
+03/14 藤本 丈(Fujimoto Jou)〔东京都〕
+
+03/14 真仲 惠吾(Manaka Keigo)〔东京都〕
+
+03/14 藤井 隼(Fujii Hayato)〔神奈川県〕
+
+03/14 坂元 奈月(Sakamoto Natsuki)〔茨城県〕
+
+03/14 空贺 花(Kuga Hana)〔埼玉県〕
+
+03/15 森田 则昭(Morita Noriaki)〔冈山県〕
+
+03/15 安室 志穗(Amuro Shiho)〔兵库県〕
+
+03/15 田边 优人(Tanabe Yuto)〔北海道〕
+
+03/15 谷口 畅子(Taniguchi Youko)〔爱知県〕
+
+03/15 橘 正幸(Tachibana Masayuki)〔东京都〕
+
+03/15 高津 麻都香(Takatsu Madoka)〔香川県〕
+
+03/15 三原 快水(Mihara Kaito)〔福岛県〕
+
+03/15 川岛 美菜子(Kawashima Minako)〔福冈県〕
+
+03/16 泽井 真知(Sawai Machhi)（旧名：水濑真知(Minase Machi)）〔福岛県〕
+
+03/16 望月 健一(Mochizuki Kenichi)〔神奈川県〕（BLEACH：竹添幸吉郎）
+
+03/16 なかじま ゆうゆ(Nakajima Yuuyu)（参考中译：中岛优唯/中岛优友）（旧名：中岛优子(Nakajima Yuuko)）〔？？？〕
+
+03/16 岩永 悠平(Iwanaga Yuhei)〔福冈県〕
+
+03/16 藤川 茜(Fujikawa Akane)〔鹿儿岛県〕
+
+03/16 园田 泰隆(Sonoda Yasutaka)〔大阪府〕
+
+03/16 阿部 笑华(Abe Emika)〔北海道〕
+
+03/16 山本 美由纪(Yamamoto Miyuki)〔群马県〕
+
+03/16 大友 ひかり(Ootomo Hikari)〔香川県〕
+
+03/16 小田 皓介(Oda Kosuke)〔神奈川県〕
+
+03/16 若宫 春奈(Wakamiya Haruna)〔东京都〕
+
+03/17 小林 弥生(Kobayashi Yayoi)〔群马県〕
+
+03/17 胜井 美优(Katsui Miyuu)〔广岛県〕
+
+03/17 宫下 典子(Miyashita Noriko)〔东京都〕
+
+03/17 すずき 纪子(Suzuki Noriko)（本名&旧名&中译：铃木纪子）〔埼玉県〕
+
+03/17 こじま かずこ(Kojima Kazuko)（参考中译：小岛和子）〔高知県〕（不公正抽签：朝雾小雪）
+
+03/17 宫岛 えみ(Miyazima Emi)（本名&中译：宫岛绘美）（其他中译：宫岛惠美(错译)）〔北海道〕（恋如雨止：喜屋武遥）
+
+03/18 三咲 麻里(Misaki Mari)〔埼玉県〕（至高指令：DAISY）
+
+03/18 高畑 空良(Takahata Sora)〔福岛県〕（枕男子：雉子波瑛治）
+
+03/18 早乙女 翔(Saotme Shou)〔东京都〕（现视研二代目：吉武莉纱）
+
+03/18 弓原 健史(Yumihara Takefumi)〔佐贺県〕（拉拉队男子！！：锅岛卓巳）
+
+03/18 唯野 あかり(Tadano Akari)（参考中译：唯野朱里/唯野明里/唯野明/唯野灯）〔东京都〕（游戏王SEVENS：优香）
+
+03/18 八木泽 翔(Yagisawa Shou)〔埼玉県〕
+
+03/18 长谷川 美希(Hasegawa Miki)〔京都府〕
+
+03/18 吉泽 孝浩(Yoshizaw Takahiro)〔枥木県〕
+
+03/18 釆泽 靖起(Unezawa Yusuyuki)〔东京都〕
+
+03/18 园田 翔(Sonoda Shou)〔茨城県〕
+
+03/18 杉山 优斗(Sugiyama Masato)〔埼玉県〕
+
+03/18 八神 结香(Yagami Yuka)〔山形県〕
+
+03/18 中村 勇祐(Nakamura Yuusuke)〔兵库県〕
+
+03/18 古宫 吾一(Komiya Goichi)〔神奈川県〕
+
+03/18 阪井 あかね(Sakai Akane)〔？？？〕
+
+03/19 久保田 茜(Kuboda Akane)〔埼玉県〕
+
+03/19 田口 尚明(Taguchi Takaaki)〔岐阜県〕
+
+03/19 国吉 美奈子 (Kuniyoshi Minako)〔冲绳県〕
+
+03/19 藤波 聪(Fujinami Satoru)（配偶：樱木アミサ）〔神奈川県〕
+
+03/19 野濑 碧里(Nose Midori)〔京都府〕（好想告诉你：中谷加奈）
+
+03/19 高濑 朝季(Takase Asaki)〔爱媛県〕（新网球王子：浦山椎太）
+
+03/19 珠希 美碧(Tamaki Mimi)（旧名：珠希ミミ(Tamaki Mimi)）〔兵库県〕
+
+03/19 山本 智哉(Yamamoto Tomoya)〔东京都〕（游戏王SEVENS：真实爆郎）
+
+03/19 中惠 光城(Nakae Mitsuki)〔埼玉県〕（VENUS PROJECT --CLIMAX-：鹤卷莲）
+
+03/19 川野 刚稔(Kawano Kaketoshi)〔鹿儿岛県〕（来自星星的你(2013)：都教授(吹替)）
+
+03/20 久保 弥优(Kubo Miyu)（妹：立石凛）〔大阪府〕
+
+03/20 盐山 由佳(Shioyama Yuka)〔兵库県〕（数码宝贝合体战争：人鱼兽）
+
+03/20 岩崎 春奈(Iwasaki Haruna)（本名：岩崎春菜）〔大阪府〕（扩张少女系三重奏：皇千羽鹤）
+
+03/20 新堂 真弓(Shindou Mayumi)〔东京都〕
+
+03/20 室井 海人(Muroi Kaito)〔千叶県〕
+
+03/20 中野 辉美(Nakano Terumi)〔神奈川県〕
+
+03/20 佐伯 匠(Saeki Takumi)〔大分県〕
+
+03/20 佐竹 海莉(Satake Kairi)〔山口県〕
+
+03/20 林 知美(Hayashi Tomomi)〔大阪府〕
+
+03/21 根岸 薰子(Negishi Kaoruko)〔东京都〕
+
+03/21 海老冢 久藏(Ebizuka Hisatoshi)〔神奈川県〕
+
+03/21 山本 かよこ(Yamamoto Kayoko)〔山口県〕
+
+03/21 片贝 まこ(Katagai Mako)〔群马県〕
+
+03/21 权内 隆介(Gonnai Ryusuke)〔神奈川県〕
+
+03/21 原 俊之(Hara Toshiyuki)〔东京都〕
+
+03/21 水村 有里(Mizumura Yuri)〔爱知県〕
+
+03/21(03/22) 浅见 春那(Asami Haruna)（旧名：加藤敦子(Katou Atsuko)/加藤あつこ）〔福井県(群马県)〕（入间同学入魔了！：英子(灼热的乒乓球娘：铃木堇)）【编注：因基础资料存在误差，()部分内容为"加藤敦子/加藤あつこ"历史记录。加藤敦子/加藤あつこ确认为同一人物，浅见春那默认"加藤あつこ"名义。】
+
+03/21 五十岚 爱子(Igarashi Aiko)〔广岛県〕（圣诞之吻SS：绚辻缘）
+
+03/21 渡 ゆうか(Watari Yuuka)（参考中译：渡优花/渡优香）〔山梨県〕
+
+03/22 永吉 ユカ(Nagayoshi Yuka)（旧名&中译：永吉由佳）〔大阪府〕
+
+03/22 狭川 尚纪(Sagawa Naoki)〔兵库県〕（天保水浒传NEO：笹川繁藏）
+
+03/22 御沓 优子(Mikutsu Yuuko)〔大分県〕（超感猎杀/Sense8：卡拉/Kala (吹替)）
+
+03/22 石川 贵大(Ishikawa Takahiro)【非1985年2月24日广岛县出身者，姓名发音略有不同】〔爱知県〕
+
+03/22 新鹿 由美子(Shinga Yumiko)〔福冈県〕
+
+03/22 仲野 元(Nakano Gen)〔？？？〕
+
+03/22 尾形 文野(Ogata Ayano)〔千叶県〕
+
+03/22 八木沼 凌(Yagunema Ryou)〔北海道〕
+
+03/23 仓本 春奈(Kuramoto Haruna)〔静冈県〕
+
+03/23 横田 拓也(Yokota Takuya)〔兵库県〕
+
+03/23 尾股 未知也(Omata Michiya)〔枥木県〕
+
+03/23 高田 纱希衣(Takada Sakie)〔大阪府〕
+
+03/23 渡边 弥咲(Watanabe Misaki)〔东京都〕
+
+03/23 长畑 由美(Nagahata Yumi)〔兵库県〕
+
+03/23 藤原 翔大(Fujihara Shoutai)〔大阪府〕
+
+03/23 吉田 大树(Yoshida Hiroki)〔埼玉県〕
+
+03/23 井上 悟(Inoue Satoru)〔广岛県〕（少年阴阳师：寓）
+
+03/23 橘 ゆき(Tachibana Yuki)（参考中译：橘雪）〔千叶県〕
+
+03/23 阪田 佳代(Sakada Kayo)〔大阪府〕（缘之空：天女目瑛）
+
+03/23 久保田 ひかり(Kubota Hikari)（参考中译：久保田光）〔东京都〕（赛马娘Pretty Derby：目白多伯(Mejiro Dober)）
+
+03/24 佐佐木 智惠(Sasaki Chie)〔？？？〕（圣少女：河村美树）
+
+03/24 猫岛 アイル(Nekoshima Airu)〔千叶県〕（Monkey Peak：远野）
+
+03/24 吉田 胜(Yoshida Masaru)〔神奈川県〕
+
+03/24 中田 俊辅(Nakata Shusuke)〔大阪府〕
+
+03/24 大城户 翔太(Ookido Shouta)〔神奈川県〕
+
+03/24 小林 明日香(Kobayashi Asuka)〔神奈川県〕
+
+03/24 山下 泰辉(Yamashita Taiki)〔？？？〕
+
+03/24 岛村 香织(Shimamura Kaori)〔神奈川県〕
+
+03/25 名取 舞(Natori Mai)〔大阪府〕
+
+03/25 熊本 健太(Kumamoto Kenta)〔广岛県〕
+
+03/25 山本 悠人(Yamamoto Yuuto)〔大阪府〕
+
+03/25 大越 多佳子(Ookoshi Takako)〔神奈川県〕
+
+03/25 绿川 博子(Midorikawa Hiroko)〔千叶県〕
+
+03/25 汉那 仁史(Kanna Hitoshi)〔神奈川県〕
+
+03/25 平井 理子(Hirai Riko)〔大阪府〕（Wind --a breath of heart--：月代彩）
+
+03/25 杉山 由惠(Sugiyama Yoshie)〔静冈県〕（我老婆是学生会长：藤咲可怜）
+
+03/25 小川 智代(Okawa Tomoyo)（旧名：小川智子(Okawa Tomoko)）〔东京都〕
+
+03/25 津田 里穗(Tsuda Riho)〔北海道〕（偶像活动Friends!～闪耀光辉的宝石～：舒涅）
+
+03/25 真田 朱音(Sanada Akane)（别名：上田朱音(Ueda Akane)）〔京都府〕（冷然之天秤：四木沼蔷子）
+
+03/25 天神 有海(Tenjin Umi)〔枥木県〕（数码宝贝：泉光子郎）【一说1975年下半年生，且3月25日为艺名诞生日，出身地为福冈县】
+
+03/26 麻仓 ありあ(Asakura Aria)（参考中译：麻仓亚里亚）〔大阪府〕
+
+03/26 筱田 渚王也(Shinoda Naoya)〔神奈川県〕（游戏王SEVENS：镰谷桐一）
+
+03/26 儿岛 ちはる(Kojima Chiharu)（参考中译：儿岛千春）（旧名：ひとみ光）〔兵库県〕
+
+03/26 绀乃 みん(Konno Min)（参考中译：绀乃明/绀乃敏）（旧名：高桥このみ(Takahashi Konomi)）〔北海道〕
+
+03/26 松川 裕辉(Matsukawa Hiroki)（旧名：松川央树(Matsukawa Hiroki)）〔福井県〕（火之丸相扑：间宫圭一）
+
+03/26 真仲 りえ(Manaka Rie)（中译：真仲里衣）（旧名：伽月里衣(Kazuki Rie)/伽月りえ）（其他中译：真仲理惠(错译)）〔静冈県〕
+
+03/26 织田 一穗(Oda Kazuho)〔千叶県〕
+
+03/26 森田 力斗(Morita Rikito)〔奈良県〕
+
+03/26 小岛 英树(Kojima Hideki)〔大阪府〕
+
+03/26 王 怜馨(Oh Reika)〔中国福建〕
+
+03/26 中田 爱乃(Nakada Yoshino)〔神奈川県〕
+
+03/26 马渊 由妃(Mabuchi Yuki)〔静冈県〕
+
+03/27 马渊 美菜子(Mabuchi Minako)〔岐阜県〕
+
+03/27 户田 真衣子(Toda Maiko)〔爱知県〕
+
+03/27 冈 纯子(Oka Junko)〔东京都〕
+
+03/27 里美 咲华(Satomi Hana)〔长野県〕
+
+03/27 酒井 保宏(Sakai Yasuhiro)〔静冈県〕
+
+03/27 渡边 未来(Watanabe Miku)〔千叶県〕（爆TECH！爆丸：黑无来智）
+
+03/27 神咲 茉希(Kanzaki Maki)（旧名：铃宫舞姬(Suzumiya Maki)）〔新潟県〕
+
+03/27 みやま まり(Miyama Mari)（参考中译：深山真理/美山麻里）〔大阪府〕
+
+03/27 水花天乃(Mizuhana Amano)（旧名：饭岛由伽里(Iijima Yukari)）〔东京都〕
+
+03/27 塙 真奈美(Hanawa Minami)（旧名：塙爱美）〔千叶県〕（这个男子从事魔法工作：甲山）
+
+03/27 ふくざわ るみね(Fukuzawa Rumine)（别名：RUMINE）（参考中译：福泽留美音）〔东京都〕
+
+03/28 五十岚 夕夏(Igarashi Yuna)（旧名：五十岚夕奈）〔爱知県〕
+
+03/28 今 ひろゆき(Kon Hiroaki)（旧名&中译：今浩之）〔岩手県〕
+
+03/28 藤野 彩水(Fujino Ayami)〔北海道〕（枪娘！FIRE：小金）
+
+03/28 加藤 宽规(Katou Hiroki)〔兵库県〕
+
+03/28 桥本 望美(Hashimoto Nozomi)〔香川県〕
+
+03/28 渡边 太一(Watanabe Taichi)〔东京都〕
+
+03/28 藤田 干彦(Fujita Mikihiko)〔富山県〕
+
+03/28 齐川 贵之(Saikawa Takayuki)〔东京都〕
+
+03/28 筱原 彰宏(Shinohara Akihiro)〔东京都〕
+
+03/29 蓝谷 早咲(Aiya Saki)〔京都府〕
+
+03/29 罗 弘美(Ra Hiromi)〔东京都〕
+
+03/29 鬼浦 ひろ子(Oniura Hiroko)〔爱知県〕
+
+03/29 森 日菜子(Mori Hinako)〔北海道〕
+
+03/29 若林 由乃(Wakabayashi Yukino)〔高知県〕
+
+03/29 藤泽 实来(Fujisawa Mina)〔香川県〕
+
+03/29 仲台 吉一(Tanadai Yoshikazu)〔千叶県〕
+
+03/29 すきがら 沙智(Sukigara Sachi)（中译：锄柄沙智）〔埼玉県〕
+
+03/29 相本 结香(Aimoto Yuka)〔东京都〕（礼武战奇谭：黑田纶子）
+
+03/29 片柳 克敏(Katayanagi Katsutoshi)〔栃木県〕（ayakashi：柳铁也）
+
+03/29 永坂 美优纪(Nagasaka Miyuki)（旧名：永坂みゆき）〔静冈県〕
+
+03/29 小笠原 早纪(Ogasawara Saki)〔青森県〕（黄昏少女×失忆：河东真奈子）
+
+03/30 聪汰(Souta)〔山形県〕
+
+03/30 关口 未佐子(Sekiguchi Misako)〔埼玉県〕
+
+03/30 水口 博史(Mizuguchi Hiroshi)〔兵库県〕
+
+03/30 舟津 俊雄(Funatsu Toshio)（旧名：船津俊雄）〔石川県〕
+
+03/30 今野 千聪(Konno Chisato)〔山形県〕（Muv-Luv Alternative：筑地多惠）
+
+03/30 雨谷 和砂(Amagai Kazusa)〔福岛県〕（剧场版宇宙战舰大和号：永仓志织）
+
+03/31 春绮 なずな(Haruki Nazuna)（中译：春绮荠）〔北海道〕（踏切时间：福留）
+
+03/31 柏野 昌俊(Kashino Masatoshi)〔东京都〕（インフィニタ·ストラーダ：东条教授(游戏)）
+
+03/31 结城 萌子(Yuki Moeko)（旧名：绵めぐみ(Wata Megumi)）〔千叶県/中国香港〕（IDOLY PRIDE：一之濑怜）
+
+03/31 橘 きょう(Tachibana Kyo)（参考中译：橘杏/橘京）〔埼玉県〕（联盟空军航空魔法音乐队光明魔女：乔安娜·伊丽莎白·斯塔福德(Joanna Elizabeth Stafford)(初代)）
+
+03/31 稻叶 和彦(Inaba Kazuhiko)〔千叶県〕
+
+03/31 植木 亨(Ueki Toru)〔群马県〕
+
+03/31 今给黎 刚(Imakiire Gou)〔鹿儿岛県〕
+
+04/01 襟川 麻衣子(Erikawa Maiko)〔埼玉県〕
+
+04/01 田村 涉(Tamura Wataru)〔滋贺県〕
+
+04/01 中村 大志(Nakamura Hiroshi)〔富山県〕（太宗李芳远(2021)：李成桂(吹替)）
+
+04/01 四月一日 佳穗(Watanabe Kaho)（本名&旧名：山本佳穗(Yamamoto Kaho)）〔神奈川県〕
+
+04/01 橘 みかみ(Tachibana Mikami)（参考中译：橘美神）（旧名：たちばなりん(Tachibana Rin)/たちばなみかみ/立花みかみ）〔茨城県〕
+
+04/02 田中 春名(Tanaka Haruna)〔爱知県〕（Project758：宫野渡(初代)）
+
+04/02 田中 伸幸(Tanaka Nobuyuki)〔静冈県〕（水瓶世纪：上仓多响太）
+
+04/02 坂东 孝一(Bando Koichi)〔富山県〕（会长是女仆大人：坚田清正）
+
+04/02 おか まるみ(Oka Marumi)（参考中译：冈真留海）（旧名：田代留海(Tashiro Rumi)）〔群马県〕
+
+04/02 仮屋 昌伸(Kariya Masanobu)〔长崎県〕
+
+04/02 松平 真之介(Matsudairi Shinosuke)〔大阪府〕
+
+04/02 丸山 龙一(Maruyama Ryouyichi)〔群马県〕
+
+04/02 秋叶 佑(Akiba Yuu)〔茨城県〕
+
+04/02 筑山 苑佳(Tsukiyama Sonoka)〔大阪府〕
+
+04/03 坂出 雅树(Sakaide Masaki)〔大阪府〕
+
+04/03 斋藤 翔子(Saitou Shouko)〔福井県〕
+
+04/03 齐藤 美菜子(Saito Minako)〔大阪府〕
+
+04/03 竹田 佳央里(Takeda Kaori)〔大阪府〕
+
+04/03 阳村 护(Hinomura Mamoru)〔埼玉県〕
+
+04/03 椿 佑子(Tsubaki Yuuko)〔奈良県〕
+
+04/03 古屋 绫香(Furuya Ayaka)〔京都府〕
+
+04/03 峰 かずこ(Mine Kazuko)（参考中译：峰和子）〔东京都〕
+
+04/03 元吉 有希子(Motoyoshi Yukiko)〔千叶県〕（狐狸之声：红叶）
+
+04/03 加藤 ひとみ(Katou Hitomi)〔千叶県〕（推理之绊：高町亮子）
+
+04/03 深町 未纱(Fukamachi Misa)〔千叶県〕（超可动女孩1/6：龙斗）
+
+04/03 多田 桂子(Tada Keiko)〔大阪府〕（萩萩公主：ダチョロア）
+
+04/03 小柳 良宽(Koyanagi Yonhiro)〔千叶県〕（王之逆袭意志的继承者：旁白）
+
+04/03 佐佐 健太(Sasa Kenta)〔秋田県〕（翻转女孩THE ROLLING GIRLS：音羽幸吉）
+
+04/04 片贝 薰(Katakai Kaoru)〔大阪府〕（铁腕巴蒂DECODE：02：千明初枝）
+
+04/04 津久井 彩文(Tsukui Ayami)〔神奈川県〕（依靠被嫌弃的【状态异常技能】而成为最强的我最终蹂躏一切：皮吉丸）
+
+04/04 豆咲 りお(Mamesaki Rio)（参考中译：豆咲理央）〔大阪府〕（联盟空军航空魔法音乐队光明魔女：乔安娜·伊丽莎白·斯塔福德(Joanna Elizabeth Stafford)(二代)）
+
+04/04 竹村 加奈(Takemura Kana)〔京都府〕
+
+04/04 羽纯(Hasumi)〔石川県〕
+
+04/04 小田岛 风美(Odashima Kazami)〔岩手県〕
+
+04/04 井上 桃花(Inoue Momoka)〔神奈川県〕
+
+04/04 小池 贵大(Koike Takahiro)〔静冈県〕
+
+04/04 村冈 仁美(Muraoka Hitomi)〔德岛県〕
+
+04/04 吉冈 琳吾(Yoshioka Ringo)〔京都府〕
+
+04/05 田村 マミ(Tamura Mami)〔福冈県〕
+
+04/05 加藤 惠(Katou Megumi)〔鹿儿岛県〕
+
+04/05 谷城 舞帆(Yashiro Maho)〔京都府〕
+
+04/05 久留 ゆう(Hisatome Yuu)（中译：久留裕）（旧名：久留裕子(Hisatome Yuuko)）〔静冈県〕
+
+04/06 广原 ふう(Hirahara Fuu)（参考中译：广原风）〔岐阜県〕
+
+04/06 いせ ひなた(Ise Hinata)（参考中译：伊势日向）〔大阪府〕
+
+04/06 森 一丁(Mori Icchou)（旧名：森木林(Mori Kirin)）〔福冈県〕
+
+04/06 寸石 和弘(Sunseki Kazuhiro)〔爱知県〕（盖塔机器人ARC：山岸獏）
+
+04/06 大田 菜乃子(Ota Nanoko)（旧名：南菜乃子(Minami Naoko)）〔京都府〕
+
+04/06 远藤 爱理(Entou Airi)〔长崎県〕
+
+04/07 添田 大树(Soeda Daiki)〔东京都〕
+
+04/07 中山 征俊(Nakayama Yukitoshi)〔爱媛県〕
+
+04/07 丸山 彩智惠(Maruyama Sachie)〔长野県〕
+
+04/07 相原 瑞树(Mizuki Aihara)〔神奈川県〕
+
+04/07 竹内 ゆうか(Takeuchi Yuuka)（旧名&中译：竹内优花）〔东京都〕
+
+04/07 志乃宫 风子(Shinomiya Fuuko)〔大阪府〕（忍者乱太郎：池田三郎次(2代)）
+
+04/08 うちの 阳子(Uchino Yuuko)（参考中译：内野阳子）〔熊本県〕
+
+04/08 柳濑 えりこ(Yanase Eriko)（旧名&中译：柳濑英理子）〔千叶県/东京都〕
+
+04/08 小泷 ひろみ(Kotaki Hiromi)（参考中译：小泷广美/小泷弘美）〔神奈川県〕
+
+04/08 福田 ゆい(Fukuda Yui)（旧名：椛泽ゆい(Kabasawa Yui)/伊织ゆい(Iori Yui)）〔石川県〕
+
+04/08 タルタ エリ(Taruta Eri)（中译：樽田惠利）（本名：齐藤惠利(Saitou Eri)）（旧名：森谷惠利(Moriya Eri)）〔长野県〕（黑神The Animation：亚里沙）
+
+04/08 伊藤 椋(Itou Ryo)〔熊本県〕
+
+04/08 松山 由纪子(Matsuyama Yukiko)〔埼玉県〕
+
+04/08 河野 茉莉(Kawano Mari)〔山口県〕
+
+04/09 田中 启太郎(Tanaka Keitarou)〔兵库県〕
+
+04/09 冈部 佳明(Okabe Yoshiaki)〔千叶県〕
+
+04/09 水岛 爱美(Mizushima Megumi)〔宫城県〕
+
+04/09 须贺 晴海(Suga Harumi)〔大阪府〕
+
+04/09 佐藤 正幸(Satou Masayuki)〔神奈川県〕
+
+04/09 加藤 悦子(Katou Etsuko)〔长野県〕
+
+04/09 乾 萌(Inue Moe)〔宫城県〕
+
+04/09 杉本 大介(Sugimoto Daisuke)〔千叶県〕
+
+04/09 滨名 圣子(Hamana Shouko)〔鸟取県〕
+
+04/09 黑葛原 真奈(Tsuzurahara Mana)〔千叶県〕
+
+04/09 姬野 春菜(Himeno Haruna)〔大阪府〕
+
+04/09 盆子原 康(Bonkobara Kou)〔美国加利福尼亚州〕
+
+04/09 山崎 健太郎(Yamazaki Kentarou)〔枥木県〕（MM一族：唐伞）
+
+04/09 高桥 春香(Takahashi Haruka)〔北海道〕（under the dog：小日向小百合）
+
+04/09 藤高 智大(Tomohiro Fujitaka)〔茨城県〕（高达G之复国运动：杰马·德里亚）
+
+04/09 岬 优花(Misaki Yuuka)（旧名：松崎优香(Matsuzaki Yuuka)）〔福岛県〕（牙狼 --VANISHING LINE-：米娅）
+
+04/10 织部 はるか(Oribe Haruka)（参考中译：织部遥）〔爱媛県〕
+
+04/10 近江 さなえ(Oumi Sanae)〔东京都〕（京都寺町三条的福尔摩斯：熊谷幸子）
+
+04/10 仓持 若菜(Kuramochi Wakana)〔群马県〕（金装的维尔梅～濒临堕落的魔法师和最强的灾厄一起冲入魔法世界～：莉莉娅·库德尔菲特）
+
+04/10 内野 孝聪(Uchino Takaaki)〔东京都〕
+
+04/10 水上 步梦(Mizukami Ayumu)〔神奈川県〕
+
+04/10 玉井 勇辉(Tamai Yuuki)〔爱媛県〕
+
+04/10 大槻 丈一郎(Ootuski Jouichirou)〔爱媛県〕
+
+04/10 臼木 健士朗(Usuki Keishirou)〔熊本県〕
+
+04/11 吉良 克哉(Yoshira Katsuya)〔大分県〕
+
+04/11 松村 夏纪(Matsumura Natsuki)〔埼玉県〕
+
+04/11 石井 ゆき(Ishii Yuki)（旧名&中译：石井行）〔宫城県〕
+
+04/11 东乡 しえり(Tougou Shieri)（参考中译：东乡诗绘里）〔福冈県〕（绯染天空：李映夏(游戏/初代)）
+
+04/11 饭冢 はる美(Iizuka Harumi)（参考中译：饭冢晴美）〔东京都〕（机甲舰队达莱卡XV：加贺遥/莱卡7）
+
+04/11 种市 桃子(Taneichi Momoko)（本名：种市知子(Teneichi Tomoko)）〔青森県〕（真相捕捉/The Capture：瑞秋·凯里(吹替)）
+
+04/12 岛 ゆうこ(Shima Yuuko)（中译：岛优子）（旧名：福岛优子(Fukujisha Yuuko)/福岛ゆうこ）〔群马県〕
+
+04/12 关口 量治(Sekiguchi Ryouji)〔埼玉県〕
+
+04/12 藤原 美央子(Fujiwara Mioko)〔埼玉県〕
+
+04/12 西 优子(Nishi Yuuko)〔大阪府〕
+
+04/12 夏目 佳子(Natsume Kako)〔新潟県〕
+
+04/12 北条 仁吾(Houjou Jingo)〔神奈川県〕
+
+04/12 加濑 友希(Kase Yuki)〔东京都〕
+
+04/12 一宫 拓树(Ichinomiya Hiroki)〔福冈県〕
+
+04/12 岩濑 辽平(Iwase Ryouhei)〔香川県〕
+
+04/12 广山 和比古(Hiroyama Kazuhiko)〔神奈川県〕
+
+04/13 结城 真理(Yuui Mari)〔东京都〕
+
+04/13 熊谷 圣香(Kumagai Seika)〔岩手県〕
+
+04/13 松永 郁步(Matsunaga Ikuho)〔德岛県〕
+
+04/13 竹中 伸一(Takenaka Shinichi)〔？？？〕（H2：木根龙太郎）
+
+04/13 槙野 旦(Makino Tadashi)〔冈山県〕（太宗李芳远(2021)：李芳果(吹替)）
+
+04/13 桥诘 知久(Hashizume Tomohisa)〔兵库県〕（进击的巨人：贝尔托特·胡佛）
+
+04/13 白川 万纱子(Shirakawa Masako)〔德岛県〕（听见你的声音(2013)：张彗星(吹替)）
+
+04/13 金子 彩花(Kaneko Ayaka)〔埼玉県〕（超人高中生们即便在异世界也能从容生存！：一条葵）
+
+04/14 长谷川 明子(Hasegawa Akiko)〔新潟県〕（偶像大师：星井美希）
+
+04/14 南野 こころ(Ninamino Kokoro)（参考中译：南野心）〔大阪府〕
+
+04/14 功刀 未瑞规(Kunegi Miziki)（旧名：久保山瑞穗(Kuboyama Mizuho)）〔神奈川県〕
+
+04/14 根津 大辅(Nezu Daisuke)〔千叶県〕
+
+04/14 小野寺 悠贵(Onodera Yuuki)〔山形県〕
+
+04/15 杉田 春花(Sugita Haruka)〔福岛県〕
+
+04/15 影山 贵广(Kageyama Takahiro)〔福岛県〕
+
+04/15 春坂 あげは(Harusaka Ageha)（中译：春坂扬羽）〔兵库県〕
+
+04/15 鹤田 真希(Tsuruta Maki)〔熊本県〕（见面5秒开始战斗：园村桃子）
+
+04/16 传坂 勉(Tensaka Tsutomu)〔千叶県〕（青花：奥平义道）
+
+04/16 曾谷 理华(Sotari Rika)（其他拼写：Sotari Lika）〔京都県〕
+
+04/16 新谷 惠(Niiya Megumi)〔埼玉県〕（偶像宣言：风真虹太）
+
+04/16 钟ヶ江 佑香(Kanegae Yuuka)（中译：钟江佑香）〔东京都〕
+
+04/16 石丸 惠梨(Ishimaru Eri)（旧名：长尾惠里(Nagao Eri)）〔大分県〕
+
+04/16 久保 杏奈(Kubo Anna)〔广岛県〕
+
+04/16 石原 纯(Ishihara Jun)〔埼玉県〕
+
+04/16 须能 千裕(Sunou Chihiro)〔茨城県〕
+
+04/16 佐佐木 由香(Sasaki Yuka)〔茨城県〕
+
+04/16 藤堂 骏介(Toudo Shunsuke)〔神奈川県〕
+
+04/16 新井 拓人(Arai Takuto)〔埼玉県〕
+
+04/17 柴山 大星(Shibayama Daisei)〔爱知県〕
+
+04/17 角 まり纱(Sumi Marisa)〔神奈川県〕
+
+04/17 松田 真一(Matsuda Shinichi)〔京都府〕
+
+04/17 松本 恭平(Matsumoto Kyouhei)〔兵库県〕
+
+04/17 酒元 信行(Sakemoto Nobuyuki)〔大阪府〕
+
+04/17 须加 みき(Suga Miki)〔神奈川県〕（CODE-E：秋村瞳）
+
+04/17 奥田 宽章(Okuda Hiroaki)（本名&旧名：奥田宽明）〔静冈県〕
+
+04/17 藤田 麻衣(Fujita Mai)〔山口県〕（游戏王GX：藤原优介(幼年期)）
+
+04/17 岛田 爱野(Shimada Aino)〔东京都〕（七大罪默示录的四骑士：纳西恩斯）
+
+04/18 折江 春美(Orie Atsumi)（旧名：中村充美(Nakamura Atsumi)）〔千叶県〕
+
+04/18 友岛 光贵(Tomoshima Kouki)（旧名：热田友贵(Atsuta Tomoki)）〔冈山県〕
+
+04/18 粟津 贵嗣(Awazu Takatsugu)（旧名：小泉一郎太(Izumi Ichitouta)）〔兵库県〕（永远的831：双六）
+
+04/18 天希 かのん(Amane Kanon)（参考中译：天希花音）（本名&旧名：小畑かのん(Obada Kanon)）〔东京都〕（Sacks&Guns!!：梅梅普）
+
+04/18 榊原 望(Sakakibara Nozomi)〔爱知県〕
+
+04/18 长田 任(Nagata Tsutomu)〔大阪府〕
+
+04/18 谷口 诚太郎(Taniguchi Seitarou)〔京都府〕
+
+04/18 岩崎 里菜(Iwasaki Rina)〔三重県〕
+
+04/19 吉本 真梨(Yoshimoto Mari)〔广岛県〕
+
+04/19 小船 彰人(Obune Akito)〔埼玉県〕
+
+04/19 市原 将弘(Ichihara Masahiro)〔千叶県〕（足球骑士：若林茂）
+
+04/19 梶山 はる香(Kaijiyama Haruka)（参考中译：梶山春香）〔东京都〕
+
+04/19 服部 加奈子(Hattori Kanako)〔爱知県〕（BLEACH：矢胴丸莉莎(初代)）
+
+04/19 竹田 海渡(Takeda Kaito)〔大阪府〕（Skate Leading☆Stars：仓吉虎之助）
+
+04/19 大钟 则子(Oogane Noriko)〔爱知県〕（やっとかめ侦探团：久保田幸子）
+
+04/19 黛 侑里(Mayuzumi Yuuri)（旧名：原口馨(Haraguchi Kawori)）〔兵库県〕
+
+04/19 江口 育美(Eguchi Ikumi)〔北海道〕（太宗李芳远(2021)：神德皇后(吹替)）
+
+04/19 平井 祥惠(Hirai Sachie)〔奈良県〕（王的面孔/王者之相(2014)：金佳熙(吹替)）
+
+04/20 见波 咲空(Minami Saku)（别名：森めぐみ(Mori Megumi)）〔东京都〕
+
+04/20 后吕 直树(Ushiro Naoki)〔大阪府〕
+
+04/20 三村 优斗(Mimura Yuto)〔埼玉県〕
+
+04/20 上本 瑞季(Uemoto Mizuki)〔广岛県〕
+
+04/21 关根 まこ(Sekine Mako)〔群马県〕
+
+04/21 山田 智子(Yamada Tomoko)〔秋田県〕
+
+04/21 元井 健雄(Motoi Takeo)〔奈良県〕
+
+04/21 大谷 理惠(Otani Rie)〔广岛県〕
+
+04/21 门田 纱季(Kadota Saki)〔东京都〕
+
+04/21 米须 太一(Komesu Taichi)〔冲绳県〕
+
+04/21 岛宗 りつこ(Shimamune Ritsuko)（参考中译：岛宗律子）〔东京都〕
+
+04/21 深川 和征(Fukugawa Kazumasa)〔鹿儿岛県〕（川越Boys Sing：铃木柯蒂斯）
+
+04/21 樱井 春香(Sakurai Haruka)（旧名(本名)：斋藤遥香(Saitou Haruka)）〔埼玉県〕
+
+04/21 河村 梨惠(Kawamura Rie)〔千叶県〕（少年亚奇贝GO!GO!GOMA酱：亚奇贝）
+
+04/22 伊势 文秀(Ise Fumihide)〔奈良県〕（C：高泽祐一）
+
+04/22 青山 玲菜(Aoyama Reina)〔兵库県〕（寻找身体：柊留美子）
+
+04/22 松本 考平(Matsumotoa Kouhei)〔滋贺県〕（侦探X的挑战书：基特）
+
+04/22 岛原 彩心(Shimahara Kokoro)（其他拼写： Shimahara Cocoro）（旧名：月见心(Tsukimo Kokoro)）〔爱知県〕
+
+04/22 冈野 友佑(Okano Yuu)〔东京都〕（金装的维尔梅～濒临堕落的魔法师和最强的灾厄一起冲入魔法世界～：马克斯·帕尔斯顿）
+
+04/22 黑田 宏彬(Kuroda Hiroaki)〔兵库県〕
+
+04/22 明神 碧人(Myoujin Aoto)〔高知県〕
+
+04/22 福岛 晴菜(Fukushima Haruna)〔大阪府〕
+
+04/22 吉泽 晃太朗(Yoshizawa Kotaro)〔静冈県〕
+
+04/22 久保田 将圣(Kubota Masaki)〔宫崎県〕
+
+04/22 水口 侑一(Mizuguchi Yuichi)〔东京都〕
+
+04/22 中川 和惠(Nakagawa Kazue)〔北海道〕
+
+04/23 吉田 誉(Yoshida Homare)〔青森県〕
+
+04/23 高桥 星七(Takahashi Seina)〔大阪府〕
+
+04/23 北垣内 春香(Kitagaito Haruka)〔奈良県〕（灰色幻影扳机：山本泉）
+
+04/23 でこ(Deko)（本名&旧名：江口秀子(Eguchi Hideko)）〔东京都〕
+
+04/23 大谷 理美(Otani Satomi)〔神奈川県〕（棒球大联盟 2nd season：松原）
+
+04/23 江头 宏哉(Egashira Hiroya)〔佐贺県〕（东京24区(TV动画)：近藤薰）
+
+04/23 彩山 あり(Sayama Ari)（中译：彩山彩理）（旧名：入山彩理沙(Iriyama Arisa)）〔宫崎県〕
+
+04/23 羽吹 梨里(Habuki Risato)（旧名：原瑞希(Hara Mizuki)）〔神奈川県〕（Dies irae：丽莎·布伦纳）
+
+04/23 モモ カオリ(Momo Kaori)（参考中译：桃香织）〔东京都〕（约翰·里弗(2015)：杰姬德·史蒂文·史蒂文森(吹替)）
+
+04/23 中村 サチコ(Nakamura Sachiko)（本名&中译：中村幸子）〔福冈県〕（超执刀 カドゥケウス：利根川アンジュ(游戏)）
+
+04/24 玉置 阳子(Tamaoki Youko)〔东京都〕（日常：上星）
+
+04/24 牧 ちひろ(Maki Chihiro)（参考中译：牧千寻）〔埼玉県〕
+
+04/24 小林 さとみ(Kobayashi Satomi)（参考中译：小林里美）〔东京都〕
+
+04/24 伊原 隆一郎(Ihara Ryouichirou)〔冈山県〕（排球少年：浅虫快人）
+
+04/24 三宅 晴佳(Miyake Haruka)〔大阪府〕（徒然喜欢你：神田沙希）
+
+04/24 MISAKI(Misaki)（本名&旧名：镰田美沙纪(Kamata Misaki)）〔青森県〕
+
+04/24 真中 琴与(Manaka Kotoyo)（旧名：大西琴与(Oonishhi Kotoyo)）〔千叶県〕
+
+04/24 大本 なな子(Oomoto Nanako)（本名&旧名&中译：大本菜奈子）（其他中译：大本菜菜子(错译)）〔爱媛県〕
+
+04/24 清水 はる香(Shimizu Haruka)（本名&旧名：佐藤はる香(Satou Haruka)）（参考中译：清水春香）〔北海道〕（狂赌之渊：熊楠）
+
+04/24 御崎 真美(Misaki Mami)〔大阪府〕
+
+04/24 樱庭 由加里(Sakuraba Yukari)〔京都府〕
+
+04/24 和田 省(Wada Shou)〔福岛県〕
+
+04/24 荒木 健志(Araki Takeshi)〔埼玉県〕
+
+04/25 森 树里(Mori Juri)〔新潟県〕
+
+04/25 铃山 未彩(Suzuyama Misa)〔埼玉県〕
+
+04/25 江藤 博树(Etou Hiroki)〔神奈川県〕
+
+04/25 米岛 希(Yoneshima Nozomi)〔神奈川県〕（恋姬无双：孙策）
+
+04/25 儿玉 さとみ(Kotama Satomi)〔青森県〕（永恒恋歌：高町美由希）
+
+04/25 山岸 弘一(Yamagishi Kouichi)〔千叶県〕（游戏王GX：江里纟石辉）
+
+04/25 卯野 春香(Uno Haruka)〔千叶県〕（TAMA & FRIENDS ～猫狗宠物街～：小黑）
+
+04/26 ひぽー(Hippo)〔广岛県〕（LOVE米-WE LOVE RICE-：卡芒贝尔）
+
+04/26 柴崎 祥(Shibasaki Shou)（旧名：福原安祥(Fukuhara Anjou)）〔宫崎県〕
+
+04/26 木村 こてん(Kimura Koten)（参考中译：木村瑚天）〔茨城県〕（ぷらすぷらむ：テオ(游戏)）
+
+04/26 多田 このみ(Tada Konomi)（参考中译：多田好美/多田木乃美/多田好/多田木实）〔石川県〕（Hugtto!光之美少女：小抱）
+
+04/26 入江 健夫(Irie Takeo)〔枥木県〕
+
+04/26 星野 美奈子(Hoshino Minako)〔神奈川県〕
+
+04/27 吉原 康平(Yoshiwara Kohei)〔茨城県〕
+
+04/27 桥本 雅史(Hashimoto Masashi)〔京都府〕
+
+04/27 山崎 快(Yamazaki Kai)〔千叶県〕
+
+04/27 鸣濑 友希(Naruse Yuuki)〔香川県〕
+
+04/27 北乡 晴规(Hongo Haruki)〔鹿儿岛県〕
+
+04/27 藤森 凉美(Fujimoro Ryoumi)〔枥木県〕
+
+04/27 竹内 仁美(Takeuchi Hitomi)〔静冈県〕
+
+04/27 辰巳 知里(Tatsumi Chisato)〔大阪府〕
+
+04/27 弓野 真纪(Yumino Maki)〔茨城県〕
+
+04/27 中井 将贵(Nakai Masataka)〔爱知県〕（电脑冒险记：吉恩·J·雅卡尔）
+
+04/28 伊奈原 遥香(Inahara Haruka)（旧名：稻原春香）〔东京都〕
+
+04/28 远藤 かなみ(Endou Kanami)（旧名&中译：远藤香菜美）〔千叶県〕
+
+04/28 しもむら えりな(Shimomura Erina)（旧名&中译：下村惠里奈）〔东京都〕
+
+04/28 坂井 俊文(Sakai Toshifumi)〔神奈川県〕（关于完全听不懂老公在说什么的事：树濑望）
+
+04/28 松代 真由(Matsushiro Mayu)〔千叶県〕
+
+04/28 有马 健(Arima Ken)〔宫崎県〕
+
+04/28 间宫 智明(Mamiya Tomoaki)〔长野県〕
+
+04/28 岩泽 一哉(Iwasawa Kazuya)〔东京都〕
+
+04/28 黑木 珠璃(Kuroki Juri)〔大阪府〕
+
+04/29 吉本 千绘(Yoshimoto Chie)〔京都府〕
+
+04/29 野崎 纮梦(Nozaki Hiromi)〔茨城県〕
+
+04/29 矢口 雄(Yaguchi Yuu)〔山口県〕
+
+04/29 亚波 赖子(Anami Yoriko)〔中国江西南昌〕
+
+04/29 西田 翔一(Nishida Shouichi)〔福冈県〕
+
+04/29 今泉 文乃(Imaizumi Ayano)〔茨城県〕（九龙妖魔学园纪：八千穗明日香(游戏)）
+
+04/29 真岛 リョウ(Majima Ryou)（已故）（旧名：莲透(Hasu Touru)/江森太郎(Emori Tairou)）〔新潟県〕
+
+04/30 筱原 侑(Sasahara Yuu)〔熊本県〕（黑暗集会：宝月夜宵）
+
+04/30 五阿弥 ルナ(Goami Runa)（别名(中译)：五阿弥瑠奈）〔埼玉県(宫崎県)〕
+
+04/30 土门 敬子(Tomon Keiko)〔埼玉県〕
+
+05/01 前岛 清志(Maejima Kiyoshi)〔埼玉県〕
+
+05/01 藤原 大智(Fujiwara Daichi)〔香川県〕
+
+05/01 滨川 真人(Hamakawa Masato)〔神奈川県〕
+
+05/01 伊藤 雄贵(Itou Yuuki)〔鸟取県〕
+
+05/01 カミヤ 春佳(Kamiya Haruka)（参考中译：神谷春佳）〔爱知県〕
+
+05/01 三好 さつき(Miyoshi Satsuki)（参考中译：三好五月）〔大阪府〕
+
+05/01 かどたに まみ(Kadotani Mami)（本名&旧名&中译：角谷麻美）〔埼玉県〕
+
+05/01 桥本 结(Hashimoto Yui)〔鸟取県〕（金田一少年事件簿R：鹰野树里）
+
+05/01 彩月 ちさと(Satsuki Chisato)（参考中译：彩月千里）（旧名：五月ちさと）〔福岛県〕（高校舰队：胜田聪子）
+
+05/02 赤木 美绘(Akagi Mie)〔大阪府〕（MEZZO：真央）
+
+05/02 别府 なるみ(Beppu Narumi)（旧名&中译：别府菜留美）〔宫崎県〕
+
+05/02 木村 香央里(Kimura Kaori)〔东京都〕（GO!GO!阿童木：赛莲娜博士）
+
+05/02 国分 和人(Konbun Masato)〔千叶県〕（宇宙战舰大和号2199：相原义一）
+
+05/02 角田 雄二郎(Katani Yuijirou)〔神奈川県〕（世界上最美丽的我的女儿(2019)：韩泰朱）
+
+05/02 盐野 アンリ(Shiono Anri)（参考中译：盐野杏里）（旧名：吉川友佳子(Yoshikawa Yukako)）〔千叶県〕（心跳回忆ONLY LOVE：春日司）
+
+05/02 浅野 雄(Asano Yuu)〔福井県〕
+
+05/02 丸中 康司(Marunaka Kouji)〔鸟取県〕
+
+05/02 北山 恭祐(Kitayama Kyousuke)〔滋贺県〕
+
+05/03 绫濑 贵寻(Ayase Takahiro)〔东京都〕
+
+05/03 北尾 もえぎ(Kitao Moegi)（本名&中译：北尾萌希）〔京都府〕
+
+05/03 山中 まどか(Yamanaka Madoka)（参考中译：山中圆）〔大阪府〕
+
+05/03 园田 ひろこ(Sonoda Hiroko)（旧名&中译：园田弘子）〔鹿儿岛県〕
+
+05/03 铃江 梨纱(Suzue Risa)（本名&旧名：猪股梨纱(Inomata Risa)）〔青森県〕
+
+05/04 恒松 崇(Tsunematsu Takashi)〔兵库県〕（星之岛喵喵：利多林）
+
+05/04 真木 ナオ(Maki Nao)（中译：真木奈绪）（本名&旧名：山内奈绪(Yamauchi Nao)）〔东京都〕
+
+05/04 池田 のぞみ(Ikeda Nozomi)〔？？？〕
+
+05/04 牧野 辽生(Makino Haruki)〔长野県〕
+
+05/04 山崎 朗子(Yamazaki Aikiko)〔宫城県〕
+
+05/05 金子 英彦(Kaneko Hidehiro)〔宫城県〕
+
+05/05 町田 广和(Machida Hirokazu)〔北海道〕
+
+05/05 安藤 仁(Andou Jin)〔东京都〕
+
+05/05 井田 爱里纱(Ida Arisa)〔三重県〕
+
+05/05 藤平 るみ(Fujihira Rumi)〔千叶県〕
+
+05/05 平尾 卓雅(Hirao Takuma)（旧名：平尾タクマ）〔大阪府〕
+
+05/05 加藤 沙织(Katou Saori)〔长野県〕（绿林女儿罗妮娅：鸟女）
+
+05/05 菖蒲 みらい(Ayame Mirai)（参考中译：菖蒲未来/菖蒲美来）〔千叶県〕
+
+05/05 かみむら しゅんすけ(Kamimura Shunsuke)（旧名(参考中译)：上村俊介/神村骏介）〔东京都〕
+
+05/06 椿 朋夏(Tsubaki Tomoka)（旧名：高桥朋夏(Takahashi Tomoko)）〔枥木県〕
+
+05/06 神谷 亮(Kamiya Ryou)〔东京都〕（线上游戏的老婆不可能是女生？：幕之内亮）
+
+05/06 楠 ひなた(Kusunoki Hinata)（参考中译：楠日向）〔神奈川県〕（元气少女缘结神：千代丸）
+
+05/06 椙山 贵夫(Sugiyama Takao)〔东京都〕
+
+05/06 丹羽 克寿(Niwa Katsutoshi)〔千叶県〕
+
+05/06 久保井 美沙希(Kuboi Misaki)〔枥木県〕
+
+05/07 立花 知美(Tachibana Tomomi)〔千叶県〕
+
+05/07 久行 敬子(Hisayuki Yoshiko)〔东京都〕
+
+05/07 山崎 哲也(Yamazaki Tetsuya)〔石川県〕
+
+05/07 朝田 阳贵(Asada Haruki)〔福冈県〕
+
+05/07 小村 将(Komura Shou)〔枥木県〕（七大罪默示录的四骑士：珀西瓦尔）
+
+05/07 川岛 悠美(Kawashima Yuumi)〔茨城県〕（进击的巨人 The Final Season：索菲亚）
+
+05/07 黑濑 ゆうこ(Kurose Yuuko)（参考中译：黑濑优子）〔广岛県〕（一个人的○○小日子：苏特卡·拉吉特）
+
+05/08 伊东 久美子(Itou Kumiko)〔兵库県〕（亡灵幻境：舆绪唐子）
+
+05/08 藤井 麻理子(Fujii Mariko)〔东京都〕（魔王勇者：冰雪女王）
+
+05/08 西宫 拓希(Nishimiya Hiroki)（本名&旧名：奥村拓希(Okumura Hiroki)）〔兵库県〕
+
+05/08 菊池 纱矢香(Kikuchi Sayaka)〔千叶県〕（不相信人类的冒险者们好像要去拯救世界：卡兰）
+
+05/08 上田 いおり(Ueda Iori)（参考中译：上田伊织）（本名&旧名：鸟喰枫(Toribami Kaede)）〔大阪府〕
+
+05/08 西原 ゆーこ(Nishihara Yuko)〔？？？〕
+
+05/08 生井 奏多(Namai Kanata)〔宫城県〕
+
+05/09 清水 千惠(Shimizu Chie)〔东京都〕
+
+05/09 小池 谦一(Koike Keichi)〔新潟県〕
+
+05/09 栗栖 パトラ(Kurisu Patora)〔大阪府〕
+
+05/09 加藤 清司(Katou Seiji)〔北海道〕
+
+05/09 角仓 英里子(Kadoukura Eriko)〔埼玉県〕
+
+05/09 石原 舞(Ishihara Mai)〔福冈県〕（Ange Vierge：索菲亚）
+
+05/09 渡部 由佳(Wanabe Yuka)〔大阪府〕（电波女与青春男：静）
+
+05/09 春宫 茉由(Harumiya Mayu)〔北海道〕（爆漫王。：松田桃子）
+
+05/09 中冢 玲(Nakatsuka Rei)〔埼玉県〕（奔向地球：米歇尔·维佩尔）
+
+05/09 押山 沙织(Oshiyama Saori)〔埼玉県〕（潮与虎(2015版)：古尾惠）
+
+05/09 滨田 洋平(Hamada Youhei)〔神奈川県〕（NOBLESSE大贵族：加濑学）
+
+05/09 宫白 桃子(Miyashiro Momoko)（旧名：小出桃子(Koide/Oide Momoko)）〔埼玉県〕
+
+05/09 永木 贵依子(Nagaki Kiyoko)（旧名：永木贵代子）〔大阪府〕（魍魉之匣：御船千鹤子）
+
+05/10 レニー·ハート(Reni Hato)（原名：Lenne Hardt）（中译：伦内·哈尔特）〔美国〕
+
+05/10 井户 ゆい(Ido Yui)（参考中译：井户唯）〔神奈川県〕
+
+05/10 芦泽 亚希子(Ashizawa Akiko)〔东京都〕
+
+05/10 田丸 真由美(Tamaru Mayumi)〔东京都〕
+
+05/10 小林 研二(Kobayashi Kenji )〔东京都〕
+
+05/10 伊吹 茅纮(Ibuki Chihiro)〔埼玉県〕
+
+05/10 高槻 阳一(Takatsuki Yoichi)〔静冈県〕
+
+05/10 柊 一希(Hiiragi Kazuki)〔滋贺県〕
+
+05/11 图师 晃佑(Zushi Kousuke)〔？？？〕
+
+05/11 小泽 瑞季(Ozawa Mizuki)〔东京都〕
+
+05/11 千叶 航平(Chiba Kouhei)〔新潟県〕
+
+05/11 伊吹 誓乃(Ibuki Chikano)〔枥木県〕
+
+05/11 田村 健亮(Tamura Kensuke)〔山口県〕（薄樱鬼黎明录：新见锦）
+
+05/11 藤泽 奖(Fujisawa Shou)〔岩手県〕（无神世界中的神明活动：罗伊）
+
+05/11 ゆうか(Yuuka)（中译：优佳）（旧名：斋藤优佳(Saitou Yuuka)）〔福冈県〕
+
+05/11 白河 真由(Shirakawa Mayu)〔东京都〕（无人岛物语2：森下奈都野(游戏)）
+
+05/11 笹森 亚希(Sasamori Aki)（本名：白石亚希(Shiraishi Aki)）〔埼玉県〕（地狱少女二笼：宫原泉&宫里裕理）
+
+05/11 清华(Sayaka)（本名&别名：横矢清华(Yokoya Sayaka)）〔埼玉県〕（这如果叫作爱情感觉会很恶心：天草好乃）
+
+05/12 梅泽 めぐ(Umezawa Megu)（参考中译：梅泽惠）〔北海道〕（魔神创造传(2025)：玛洛）
+
+05/12 渚 兔奈(Nagisa Una)（旧名：河出侑子(Kawade Yuuko)）〔福井県〕（白猫Project ZERO CHRONICLE：格罗扎）
+
+05/12 冈部 悟(Okabe Satoru)〔爱知県〕
+
+05/12 国松 沙矢香(Kunimatsu Sayaka)〔大阪府〕
+
+05/12 国分 绚一郎(Kokubun Jyunitirou)〔大阪府〕
+
+05/12 彩月 奏惠(Satsuki Kanae)〔千叶県〕
+
+05/12 渡边 千绚(Watanabe Chihiro)〔千叶県〕
+
+05/12 清水 俊彦(Shimizu Toshihiro)〔山口県〕
+
+05/13 铃森 瑛莉菜(Suzumori Erina)〔冈山県〕
+
+05/13 樋口 健太(Higuchi Kenta)〔埼玉県〕
+
+05/13 三轮 瑛(Miwa Akira)〔京都府〕
+
+05/13 野野山 惠梨(Nonoyama Eri)〔神奈川県〕
+
+05/13 森胁 陆三(Moriwaki Rikumi)〔岛根県〕
+
+05/13 筱崎 爱(Shinozawa Ai)〔茨城県〕
+
+05/13 浅科 准平(Asashina Junpei)〔千叶県〕（BTOOOM!：饭田恒明）
+
+05/13 田内 夏子(Tauchi Natsuko)〔爱媛県〕（你是主我是仆：稻村圭子）
+
+05/13 柳生 步(Yagyuu Ayumi)（旧名：石河步(Ishikawa Ayumi)）〔埼玉県〕
+
+05/13 桃森 すもも(Momomori Sumomo)（参考中译：桃森李）〔东京都〕（七人之奈奈：奈奈姐）
+
+05/13 栗田 かおり(Kurita Kaori)【非1963年6月16日埼玉县出身者】〔北海道〕（B黑寡妇/Black Widow(2021)：奥利维亚(吹替)）
+
+05/14 藤田 奈央(Fujida Nao)〔奈良県〕（约定的梦幻岛：克洛涅）
+
+05/14 小田 果林(Oda Karin)〔兵库県/千叶県〕（宫河家的空腹：水岛大助）
+
+05/14 星野 佑典(Hoshino Yusuke)〔枥木県〕（BUCCHIGIRI？！：浅观音真宝）
+
+05/14 佐藤 健辅(Satou Kensuke)〔长野県〕（创圣的大天使EVOL：诸井·多雷扎）
+
+05/14 小玉 景斗(Kodama Keito)（本名&旧名：儿玉志帆(Kodama Shiho)）〔神奈川県〕
+
+05/14 绫崎 みき(Ayasaki Miki)〔？？？〕
+
+05/14 川内 慎太郎(Kawauchi Shintarou)〔富山県〕
+
+05/14 よしだ あゆみ(Yoshida Ayumi)〔长崎県〕
+
+05/14 铃木 秀香(Suzuki Hideka)〔山梨県〕
+
+05/14 黑田 浩一(Kuroda Koichi)〔东京都〕
+
+05/15 吉田 麻实(Yoshida Asami)〔大阪府〕
+
+05/15 平林 刚(Hirabayashi Takashi)〔静冈県〕
+
+05/15 舞山 裕子(Mayama Yuko)〔东京都〕
+
+05/15 京花 优希(Kyouka Yuuki)〔山口県〕
+
+05/15 薄井 友里(Usui Yuri)〔东京都〕
+
+05/15 多田 咲月(Tada Satsuki)〔东京都〕
+
+05/15 长友 孝宪(Nagamoto Takanori)〔宫崎県〕
+
+05/15 向折户 涉(Mukaiorito Ayumi)〔岩手県〕
+
+05/15 村雨 龙人(Murasame Ryuuto)〔神奈川県〕
+
+05/15 佐佐 千春(Sasa Chiharu)〔滋贺県〕
+
+05/15 渡部 桃花(Watabe Momoka)〔福岛県〕
+
+05/15 齐藤 优希(Saitou Yuuki)〔埼玉県〕
+
+05/15 中小路 雅海(Nakakouji Masami)〔千叶県〕（小木乃伊到我家：神谷月夜）
+
+05/15 矶部 よしゆき(Isobe Yoshiyuki)（本名&旧名&中译：矶部巧幸）〔山口県〕
+
+05/15 黑田 祥史(Kuroda Yoshihito)（本名&旧名：黑田祥一郎(Kuroda Shouichirou)）〔大阪府〕
+
+05/15 朱夏 かほ里(Akenatsu Kaori)（参考中译：朱夏香里）（本名：久留岛かほ里(Kurushima Kaori)）〔广岛県〕
+
+05/16 安田 未央(Yasuda Mio)〔千叶県〕（夏日阳光：田端唯）
+
+05/16 北崎 ひとみ(Kitazaki Hitomi)（本名&旧名&中译：北崎仁美）〔熊本県〕
+
+05/16 凉叶 红美(Suzuja Kumi)（旧名：铃木久美子(Suzuki Kumiko)）〔千叶県〕
+
+05/16 洪 英姬(Hon Yonhi)（韩文写法：홍영희）〔东京都〕（Adventure Time：Lady Rainicorn）
+
+05/16 浅木 俊之(Asagi Toshiyuki)〔福冈県〕
+
+05/16 广江 美奈(Hiroe Mina)〔东京都〕
+
+05/16 伊藤 舞音(Itou Mao)〔三重県〕
+
+05/16 新井 由布子(Arai Yuuko)〔埼玉県〕
+
+05/16 长谷川 俊介(Hasegawa Shunsuke)〔埼玉県〕
+
+05/17 中村 繁之(Nakamura Shigeyuki)〔大阪府〕
+
+05/17 神 昌彦(Jin Masahiko)〔神奈川県〕
+
+05/17 金子 千纱(Kaneko Chisa)〔东京都〕
+
+05/17 川东 哲也(Kawatou Tetsuya)〔北海道〕
+
+05/17 得能 ありさ(Tokumou Arisa)〔和歌山県〕
+
+05/17 神乐坂 素子(Kagurazaka Motoko)〔？？？〕
+
+05/17 田中 沙耶(Tanaka Saya)〔大阪府〕（甜梦猫：蓝田洁衣）
+
+05/17 绿川 优美(Midorikawa Yuubi)〔神奈川県〕（八月的棒球甜心：铃木和香）
+
+05/17 星ノ谷 しずく(Hoshinoya Shizuku)（中译：星之谷雫）〔神奈川県〕（WIXOSS DIVA(A)LIVE：温故昭乃）
+
+05/18 大城 松美(Ooshiro Matsumi)（旧名：大城まつみ）〔冲绳県/东京都〕
+
+05/18 太田 小波(Ota Konami)（旧名：七濑小波(Nanase Konami)）〔神奈川県〕
+
+05/18 涩谷 彩乃(Shibuya Ayano)（本名&旧名：富岛彩乃(Tomishima Ayano)）〔东京都〕（回复术士的重来人生：芙蕾雅/芙列雅）
+
+05/18 上野 翔(Ueno Shou)〔东京都〕
+
+05/18 矢泽 炼(Yazawa Ren)〔北海道〕
+
+05/18 浅野 良介(Asano Ryousuke)〔京都府〕
+
+05/18 山中 裕司(Yamanaka Yuji)〔爱知県〕
+
+05/19 工藤 沙贵(Kudou Saki)〔北海道〕
+
+05/19 野野宫 健悟(Nonomiya Kengo)〔德岛県〕
+
+05/19 富冈 泰崇(Tomioka Yasutaka)〔埼玉県〕
+
+05/19 富田 华奈(Tomita Kana)〔兵库県〕
+
+05/19 深增 祐一(Fukamasu Yuuichi)〔宫崎県〕
+
+05/19 青地 希望(Aochi Nozomi)〔神奈川県〕
+
+05/19 深水 由美(Fukamizu Yumi)〔爱媛県〕（吸血姬美夕：佳代）
+
+05/19 高桥 刚(Takahahashi Tsuyoshi)〔秋田県〕（女神异闻录4：久保美津雄）
+
+05/20 深泽 纯(Fukuzawa Jun)〔神奈川県〕（刃牙大擂台赛篇：苏柳胜）
+
+05/20 石川 大介(Ishikawa Daisuke)〔东京都〕（仙界传封神演义：云中子）
+
+05/20 早坂 梢(Hayasaka Kozue)（旧名：爱川梢(Aikawa Kozue)）〔东京都〕
+
+05/20 だいこく 舞香(Daikoku Maika)（本名&旧名&中译：大黑舞香）〔大阪府〕
+
+05/20 森田 さつき(Morita Satsuki)（参考中译：森田五月）〔东京都〕（碧蓝航线：查尔斯·奥斯本）
+
+05/20 二ノ宫 爱子(Ninomiya Aiko)（中译：二宫爱子）（其他中译：二之宫爱子）〔神奈川県〕（月光下的异世界之旅：琳诺）
+
+05/20 滑川 恭子(Namekawa Kyouko)〔埼玉県〕
+
+05/20 松冈 一平(Matsuoka Ippei)〔长野県〕
+
+05/21 泽田 智巳(Sawada Tomomi)〔东京都〕
+
+05/21 柴山 平和(Ibayama Hirakazu)〔秋田県/兵库県〕
+
+05/21 夏目 あり沙(Natsume Arisa)（参考中译：夏目有沙/夏目亚里沙）〔千叶県〕
+
+05/21 幸野 善之(Kono Yoshiyuki)〔东京都〕（叛逆的鲁路修：吉尔巴特·G.P·吉尔佛德）
+
+05/21 岩崎 可苗(Iwasaki Kanae)〔北海道〕（当不成勇者的我，只好认真找工作了：艾丽·奥尔提奈特）
+
+05/21 のざき きいこ(Nozaki Kiiko)（参考中译：野泽贵衣子）（旧名：野崎贵美子(Nozaki Kimiko)/加泽贵美子(Kazawa Kimiko)）〔东京都〕
+
+05/22 奈良冈 快(Naraoka Kai)〔东京都〕
+
+05/22 保坂 俊行(Hosaka Toshiyuki)〔东京都〕
+
+05/22 菊池 通武(Kikuchi Michitake)〔东京都〕
+
+05/22 古川 靖人(Furukawa Yasuhiro)〔东京都〕
+
+05/22 鹰嘴 翼(Takanohaishi Tsubasa)〔枥木県〕
+
+05/22 新田 夕华(Niita Yuuka)〔神奈川県〕（球咏：大田瑞树）
+
+05/22 天野 亚希子(Amano Akiko)（旧名：天野琴惠(Amano Kotome)）〔富山県〕
+
+05/22 柳桥 なつみ(Yanagihashi Natsumi)（中译&旧名：柳桥菜采）〔东京都〕
+
+05/22 日野 まり(Hino Mari)（参考中译：日野麻里/日野鞠）〔北海道〕（魔都精兵的奴隶：骏河朱朱）
+
+05/23 たくみ(Takumi)〔福冈県〕
+
+05/23 田中 荣理奈(Tanaka Erina)〔兵库県〕
+
+05/23 佐久间 友理(Sakuma Yuri)〔东京都〕
+
+05/23 伊东 一人(Itou Bitto)〔山梨県〕（上阳赋(2021)：贺兰箴(吹替)）
+
+05/23 林 香织(Hayashi Kaori)〔东京都〕（还珠格格(1998)：容嬷嬷(吹替)）
+
+05/23 野中 秀哲(Nonaka Hideaki)〔东京都〕（从前有座剑灵山/灵剑山群星之宴：刘显）
+
+05/23 北川 菜月(Kitagawa Natsuki)〔兵库県〕（靠着魔法药水在异世界活下去！:蕾艾特）
+
+05/24 齐藤 次郎(Saitou Jirou)〔枥木県〕（足球骑士：麻生一志）
+
+05/24 前田 聪马(Maeda Souma)〔东京都〕（山河令(2020)：张成岭(吹替)）
+
+05/24 藤井 美波(Fujimi Minami)〔京都府〕（高达Build Fighters：八坂真央）
+
+05/24 筱原 なるみ(Shinohara Narumi)（参考中译：筱原成美）〔埼玉県〕（碧蓝航线：格里德利）
+
+05/24 中村 精道(Nakamura Kiyomichi)〔富山県〕
+
+05/24 光野 贵子(Mitsuno Takako)〔东京都〕
+
+05/24 高根泽 美树(Takanezawa Miki)〔千叶県〕
+
+05/25 宫本 茉奈(Miyamoto Mana)〔东京都〕
+
+05/25 三浦 步美(Miura Ayumi)〔千叶県〕
+
+05/25 盐原 美铃(Shiobara Misuzu)〔长野県〕
+
+05/25 山本 飒侍(Yamamoto Ryuji)〔埼玉県〕
+
+05/25 福留 雄司(Fukudome Yuuji)〔神奈川県〕
+
+05/25 幕田 有里(Makuta Yuri)〔东京都〕
+
+05/25 山川 敦也(Yamakawa Atsuya)〔长崎県〕（ayakashi：真田恭平）
+
+05/25 香坂 さき(Kosaka Saki)（参考中译：香坂早纪/香坂沙希）〔千叶県〕
+
+05/25 大野 由佳(Oono Yuka)〔东京都〕（毕业～Graduation～：高城丽子）
+
+05/25 山本 正树(Yamamoto Masaki)〔千叶県〕（电玩少女樱吹雪：三平太）
+
+05/25 山根 雅史(Yamane Masashi)〔鸟取県〕（Butlers千年百年物语：贵堂孝臣）
+
+05/26 新树 いのる(Araki Inoru)（参考中译：新树祷）〔青森県〕
+
+05/26 结木 梢(Yuuki Kozue)〔神奈川県〕（相合之物：雪平一果）
+
+05/26 藤咲 あかね(Fujisaki Akane)（参考中译：藤咲茜）〔鹿儿岛県〕
+
+05/26 熊野 哲也(Kumano Tetsuya)〔爱知県〕（格斗美神 武龙：加藤）
+
+05/26 三谷 绫子(Mitani Ayako)〔东京都〕（入间同学入魔了！：春乃）
+
+05/26 横田 和美(Yokota Kazumi)〔长崎県〕（SAMURAI GIRL：神宫寺亚弥）
+
+05/26 あさむら まほり(Asamura Mahori)（参考中译：浅村真穗莉）〔鹿儿岛県〕
+
+05/26 舞原 由佳(Maihara Yuka)（本名&旧名：羽方由佳(Hagata Yuki)）〔千叶県〕
+
+05/26 中村 纯也(Nakamura Junya)〔爱知県〕（CLEARWORLD：笹目开都(游戏)）
+
+05/26 射场 美波(Iba Minami)〔兵库県〕（中学毕业劳动者开始高中生活：齐藤雏菊）
+
+05/26 佐仓 初(Sakura Ui)（旧名：宫濑玲奈(Miyase Reina)）（本名：麻生千贺(Aso Chika)）〔福冈県〕（22/7：立川绚香）
+
+05/26 松山 薰(Matsuyama Kaoru)〔兵库県〕
+
+05/26 中野 慎太郎(Nakano Shintarou)〔兵库県〕
+
+05/26 角田 纱里(Kakuta Sari)〔兵库県〕
+
+05/27 福田 日里(Fujida Hisato)〔东京都〕
+
+05/27 佐伯 贤一(Saeki Kenichi)〔香川県〕
+
+05/27 上石 直行(Akeishi Naoyuki)〔新潟県〕
+
+05/27 远藤 航(Entou Wataru)〔东京都〕
+
+05/27 加濑 爱奈(Kase Aina)〔埼玉県〕
+
+05/27 斋藤 静江(Saitou Shizue)〔东京都〕
+
+05/27 太田 五葵(Ooda Izuki)〔茨城県〕
+
+05/27 あらや 依里(Araya Yori)（参考中译：荒谷依里）〔神奈川県〕
+
+05/28 南须原 亮(Nasuhara Ryo)（本名：南须原亮治(Nasuhara Ryoji)）〔枥木県〕
+
+05/28 河村 萤(Kawamura Kei)（旧名：河村友美(Kawamura Tomomi)）〔兵库県〕
+
+05/28 二宫 みお(Ninomiya Mio)（旧名&中译：二宫美绪）（其他中译：二宫澪(错译)）〔长野県〕
+
+05/28 藤原 由林(Fujiwara Yuri)〔兵库県〕
+
+05/28 河崎 文亮(Kawasaki Fumiaki)〔埼玉県〕
+
+05/28 中原 舜实(Nakahara Kiyomi)〔秋田県〕
+
+05/28 长 洋平(Osa Youhei)〔东京都〕
+
+05/29 村椿 玲子(Muratsubaki Reiko)〔东京都〕
+
+05/29 真边 彩加(Manabe Ayaka)〔广岛県〕
+
+05/29 土佐 菜摘(Tosa Natsumi)〔福冈県〕
+
+05/29 长 明日香(Chou Asuka)〔埼玉県〕
+
+05/29 大冢 さと(Ootsuka Sato)（参考中译：大冢里）〔兵库県〕
+
+05/29 藤间 つよし(Fujima Tsuyoshi)（参考中译：藤间刚）〔福冈県〕
+
+05/29 书上 春菜(Kakiage Haruna)〔群马県〕（黑色五叶草：索尔·玛萝）
+
+05/30 芹 明希子(Seri Akiko)（旧名：芹亚希子）〔东京都〕
+
+05/30 南海 舞(Minami Mai)（旧名：石川舞(Ishikaawa Mai)）〔东京都〕
+
+05/30 きむら ゆり奈(Kimura Yurina)（参考中译：木村由梨奈）〔？？？〕
+
+05/30 细田 健太(Hosoda Kenta)〔神奈川県〕（Re:Monster\~怪物转生\~：哥布吉）
+
+05/30 中西 正树(Nakanishi Masaki)〔奈良県〕（世界上最美丽的我的女儿(2019)：朴英达(吹替)）
+
+05/30 柊 优花(Hiiragi Yuka)（旧名：吉冈美咲(Yoshioka Misaki))〔京都府〕（荒野的寿飞行队：玛娜）
+
+05/30 上田 こうすけ(Ueda Kousuke)（参考中译：上田康介）（旧名：上田康裕(Ueda Yasuhiro)）〔？？？〕
+
+05/30 柏崎 隼史(Kashiwazaki Hayato)〔山形県〕
+
+05/30 生井泽 优太(Namaizawa Yuuta)〔千叶県〕
+
+05/30 原元 香澄(Haramoto Kasumi)〔东京都〕
+
+05/30 荒井 亮裕(Arai Akihiro)〔东京都〕
+
+05/30 夏目 真妃(Nataume Maki)〔神奈川県〕
+
+05/31 薄田 亚里纱(Usuda Arisa)〔新潟県〕
+
+05/31 龟井 淳(Kamei Jun)〔千叶県〕
+
+05/31 椎叶 マリエ(Shiiba Marie)〔爱知県〕
+
+05/31 寺西 はる(Teranishi Haru)（中译：寺西春）（本名：北川春奈(Kitagawa Haruna)）〔爱知県〕
+
+06/01 山本 祐也(Yamamoto Yuuya)〔东京都〕
+
+06/01 浅河 志磨(Asakawa Shima)〔埼玉県〕
+
+06/01 高山 滉(Takayama Kou)〔神奈川県〕
+
+06/01 山本 武人(Yamamoto Taketo)〔山口県〕
+
+06/01 新田 英人(Nitta Hideto)〔东京都〕
+
+06/01 井上 拓真(Inoue Takuma)〔千叶県〕
+
+06/01 新堂 阳斗(Shindou Haruto)〔宫城県〕
+
+06/01 浅河 志磨(Asakawa Shima)〔埼玉県〕
+
+06/01 马场 兰子(Baba Ranko)〔大阪府〕
+
+06/01 岛田 岳洋(Shimada Takahiro)〔群马県〕（乒乓：田村道夫）
+
+06/01 远藤 守哉(Uhto Umoriya)〔东京都〕（真·三国无双系列：刘备）
+
+06/01 河野 匡泰(Kouno Masahiro)（旧名：河野清人(Kawano Kiyoto)）〔长野県〕（家庭教师：维尔德）
+
+06/01 はやし りか(Hayashi Rika)（参考中译：林里佳/林里香/林梨花）〔和歌山県〕（喂！蜻蜓：大井蜻蜓）
+
+06/01 七濑 つむぎ(Nanase Tsumugi)（参考中译：七濑紬）（旧名：九龙和奏(Kuryuu Wakana)）（本名：栗生和奏）〔大阪府〕
+
+06/02 栋方 真梨子(Munakata Mariko)〔青森県〕（多罗罗：陆奥）
+
+06/02 七濑 みずき(Nanase Mizuki)（本名&旧名：吉光みずき(Yoshimitsu Mizuki)）〔大分県〕
+
+06/02 金子 哲平(Kaneko Teppei)〔东京都〕
+
+06/02 森永 麻衣子(Morinaga Maiko)〔熊本県〕
+
+06/02 关 香澄(Seki Kasumi)〔栃木県〕
+
+06/02 斋藤 由真(Saitou Yuma)〔静冈県〕
+
+06/02 原田 瑛里(Harada Eri)〔东京都〕
+
+06/03 古森 奈保子(Komori Naoko)〔枥木県〕
+
+06/03 佐伯 美由纪(Sahaku Miyuki)〔千叶県〕
+
+06/03 吾妻 奎太(Azuma Keita)〔兵库県〕
+
+06/03 筱冢 理子(Shinozuka Riko)〔长崎県〕
+
+06/03 清水 一贵(Shimizu Kazuki)〔山梨県〕（K：三科草太）
+
+06/03 小松 真奈(Komatsu Mana)〔东京都〕（R-15：名机来夏）
+
+06/03 佐伯 洋史(Saeki Hiroshi)〔埼玉県〕（仙界传封神演义：王魔）
+
+06/03 橘 谅(Tachibana Ryo)〔埼玉県〕（奇喵的画家：达利、高更）
+
+06/03 谷口 佳子(Taniguchi Keiko)〔埼玉県〕（神样DOLLS：枸雅日都美）
+
+06/03 森山 侑(Moriyama Yuu)（旧名：真田侑(Sanada Yuu)）〔东京都〕（国王游戏：大居胜利）
+
+06/03 仲村 かおり(Nakamura Kaori)（参考中译：仲村香织/仲村香里/仲村薰）〔神奈川県〕（笨蛋测试召唤兽：藤堂薰）
+
+06/03 花江 もも(Hanae Momo)（中译：花江桃）〔大阪府〕（联盟空军航空魔法音乐队光明魔女：玛利亚·玛格达莱妮·迪特里希(Maria Magdalene Dietrich)(初代)）
+
+06/04 鸣海 まい(Narumi Mai)（参考中译：鸣海舞）〔埼玉県〕（联盟空军航空魔法音乐队光明魔女：弗吉尼亚·罗伯逊(Virginia Robertson)）
+
+06/04 味里(Misato)〔神奈川県〕（我的脑内选项、正在全力妨碍学园恋爱喜剧：柔风小凪）
+
+06/04 后藤 启介(Gotou Keisuke)〔大分県〕（JUNK!BOYS：藤野智也(广播剧)）
+
+06/04 李 ふぁみ(Lee Fami)（旧名&中译：李和美）〔埼玉県〕
+
+06/05 筱永 百合(Shinonaga Yuri)〔埼玉県〕
+
+06/05 冢田 悠衣(Tsukada Yui)〔京都府〕
+
+06/05 酒见 正太郎(Sakemi Shoutarou)〔佐贺県〕
+
+06/05 三轮 夏纪(Miwa Natsuki)〔三重県〕
+
+06/05 山中 一德(Yamanaka Ittoku)〔静冈県〕
+
+06/05 こく井 麻希(Kokui Maki)（中译：国井麻希）〔兵库県〕
+
+06/05 下村 芳范(Shimomura Yoshinori)〔东京都〕（上阳赋(2021)：唐竟(吹替)）
+
+06/05 鹿野 润(Shikano Jun)（配偶：泷下毅）〔大阪府〕（战国无双：加西亚）
+
+06/06 堀内 隼人(Horiuchi Hayato)〔东京都〕（国王游戏：榊原俊文）
+
+06/06 佐野 爱(Sano Megumi)（本名&旧名：大平あい(Oohira Ai)）〔千叶県〕
+
+06/06 きのした ゆうこ(Kinoshita Yuuko)（本名&旧名&中译：木下裕子）〔大阪府〕
+
+06/06 三重野 帆贵(Mieno Hodaka)〔栃木県〕
+
+06/06 女鹿 伸树(Mega Nobuki)〔北海道〕
+
+06/06 南田 亲彦(Minamida Chikahiko)〔大阪府〕
+
+06/06 日原 滉太(Hihara Kouta)〔埼玉県〕
+
+06/07 橘内 良平(Kitsunai Ryouhei)〔福岛県〕
+
+06/07 山本 趣宇(Yamamoto Syuu)〔千叶県〕
+
+06/07 川口 樱(Kawaguchi Sakura)〔福冈県〕
+
+06/07 原岛 梢(Harashima Kozue)〔东京都〕（孙子大传(2010)：漪罗(吹替)）
+
+06/07 那村 有香(Namura Yuka)（旧名：苗村有香(Naemura Yuka)）〔爱知県〕
+
+06/08 积田 かよ子(Tsumuda Kayoko)（参考中译：积田加代子/积田佳代子）〔东京都〕（R-15：雾线兰）
+
+06/08 天神林 ともみ(Tenjibayashi Tomomi)（旧名&中译：天神林知美）〔北海道〕（忍者服部君(2012版)：三叶健一）
+
+06/08 须田 裕莉香(Suda Yurika)〔埼玉県〕
+
+06/08 柿沼 拓实( Kakinuma Takumi)〔秋田県〕
+
+06/08 山内 あゆむ(Yamauchi Ayumu)〔？？？〕
+
+06/08 成濑 绮香(Naruse Ayaka)〔东京都〕
+
+06/08 满山 祥吾(Mitsuyama Shougo)〔静冈県〕
+
+06/09 大野 佐和(Oono Sawa)〔福岛県〕
+
+06/09 中村 麻未(Nakamura Asami)〔东京都〕
+
+06/09 川原 伶奈(Kawahara Reina)〔富山県〕
+
+06/09 好川 敬太(Yoshikawa Keita)〔爱知県〕
+
+06/09 桦山 ミナミ(Kabayama Minami)（参考中译：桦山南）〔鹿儿岛県〕（Frame Arms Girl：迅雷娘）
+
+06/10 花藤 莲(Katou Ren)〔东京都〕（俺物语！！：刚田猛男(幼年期)）
+
+06/10 石井 利奈(Ishii Rina)〔东京都〕
+
+06/10 门口 友纪(Monguchi Yuki)〔石川県〕
+
+06/10 山中 沙织(Yamanaka Saori)〔枥木県〕
+
+06/10 大仓 乔史(Okura Takashi)〔鸟取県〕
+
+06/10 花园 爱美(Hanazono Manami)〔神奈川県〕
+
+06/10 大坪 孝充(Ootsubo Takamichi)〔东京都〕
+
+06/11 片冈 萌(Kataoka Moe)〔京都府〕
+
+06/11 吉永 理沙(Yoshinaga Risa)〔东京都〕
+
+06/11 大谷 美纪(Ootani Miki)〔福冈県〕
+
+06/11 中野 千佳代(Nakano Chikayo)〔大阪府〕
+
+06/11 萩原 彩实(Hagiwara Ayami)〔宫崎県〕
+
+06/11 城冈 祐介(Shirooka Yusuke)〔东京都〕
+
+06/11 辻田 启一(Tsujita Keiichi)〔宫城県〕
+
+06/11 谷岛 いおり(Yashima Iori)（中译：谷岛衣织）（旧名：山本衣织(Yamamoto Iori)）〔福冈県〕
+
+06/12 伊藤 纪子(Itou Noriko)〔埼玉県〕
+
+06/12 石川 千夏(Ishikawa Chika)〔德岛県〕
+
+06/12 池泽 祐吾(Ikezawa Yugo)〔兵库県〕
+
+06/12 盐谷 一树(Shioya Kazuki)〔青森県〕
+
+06/12 佐藤 优希(Satou Yuki)〔静冈県〕
+
+06/12 藤川 卓士(Fujikawa Takushi)〔岛根県〕
+
+06/12 薮内 裕友实(Yabuuchi Yuumi)〔三重県〕
+
+06/12 山口 正秀(Yamaguchi Masahide)〔神奈川県〕
+
+06/12 鲛岛 翔太(Sameshima Shouta)〔鹿儿岛県〕
+
+06/13 大胁 敦洋(Oowaki Atsuhiro)〔爱媛県〕
+
+06/13 石 桃子(Ishi Momoko)〔神奈川県〕
+
+06/13 内山 诚之郎(Uchiyama Seijirou)〔埼玉県〕
+
+06/13 鸟本 佳吾(Torimoto Keigo)〔宫城県〕
+
+06/13 石井 まみ(Ishii Mami)（旧名&中译：石井麻美）〔千叶県〕
+
+06/13 北守 さいか(Kitamori Saika)（参考中译：北守彩香/北守彩花/北守彩夏）〔爱知県〕（Puraore!～PRIDE OF ORANGE～：鹭沼梨子）
+
+06/14 立花 日菜(Tachibana Hina)〔宫城県〕（公司的小小前辈：片濑诗织里）
+
+06/14 东野 里加(Higashino Rika)〔石川県〕（W～Wish～公主的时间：远野润和(幼年期)）
+
+06/14 さや さや花(Saya Sayaki)（参考中译：佐谷沙耶花）（旧名：由起さやか(Yuki Sayaka)）〔东京都〕
+
+06/14 高木 遥香(Takagi Haruka)〔静冈県〕
+
+06/14 川野 雄太(Kawano Yuta)〔宫崎県〕
+
+06/14 亥野 麻纪(Ino Maki)〔大阪府〕
+
+06/14 滨口 绫乃(Hamaguchi Ayano)〔山梨県〕
+
+06/15 五味 洸一(Gomi Kouichi)〔爱知県〕
+
+06/15 高见 亚利佐(Takami Arisa)〔埼玉県〕
+
+06/15 长谷部 忠(Hasebe Tadashi)〔山梨県〕
+
+06/15 爱 ともえ(Ai Tomoe)（中译：爱智惠）（旧名：阿井智惠）〔大阪府〕
+
+06/15 增尾 兴佑(Masuo Kousuke)〔青森県〕（境界触发者：别役太一(初代)）
+
+06/15 西 真凛(Nishi Marin)〔神奈川県〕（新封神姜子牙(2019)：青鸾&鸾凤(吹替)）
+
+06/15 森下 由树子(Morishita Yukiko)〔东京都〕（剧场版数码宝贝大冒险tri. ：缅因猫兽）
+
+06/15 藤原 あかり(Fujiwara Akari)（旧名：あかり(Akari)）〔东京都〕（铁胆火车侠：翼(初代)）
+
+06/15 中村 温姬(Nakamura Atsuki)〔埼玉県〕（THE IDOLM@STER MILLION LIVE! ：ロコ(伴田路子)）
+
+06/15 菊永 あかり(Kikunaga Akari)（参考中译：菊永朱里）〔熊本県〕（梨泰院CLASS(2020)：马贤伊(吹替)）
+
+06/16 佐东 充(Satou Mitsuru)（旧名：佐藤充）〔埼玉県〕
+
+06/16 春花 らん(Haruka Ran)（参考中译：春花兰）〔熊本県〕
+
+06/16 西原 さおり(Nishihara Saori)〔熊本県〕（幸运星：成实唯）
+
+06/16 平山 ゆかり(Hirayama Yukari)（旧名&中译：平山缘）〔冈山県〕
+
+06/16 庆长 佑香(Keichyou Yuka)〔青森県〕（黑魔女学园：叶月星夜）
+
+06/16 冈本 沙保里(Okamoto Saori)〔大阪府〕（芝加哥烈焰(风城火情)：希尔薇·布雷特(吹替)）
+
+06/16 关 辉雄(Seki Teruo)〔东京都〕
+
+06/16 末安 广平(Sueyasu Kouhei)〔福冈県〕
+
+06/16 须田 美铃(Suda Mirei)〔宫城県〕
+
+06/16 田村 升三(Tamura Shouzou)〔德岛県〕
+
+06/16 大福 弓子(Oofuku Yumiko)〔冈山県〕
+
+06/16 恋汐 りんご(Koishio Ringo)〔群马県〕
+
+06/16 北岛 瑞月(Kitajima Mizuki)〔埼玉県〕
+
+06/16 善财 达也(Zenzai Tatsuya)〔北海道〕
+
+06/17 富尾 光里(Tomio Hikari)〔富山県〕
+
+06/17 向山 太规(Mukouyama Daiki)〔埼玉県〕
+
+06/17 玉野 翔矢(Tamano Shouya)〔山口県〕
+
+06/17 槙原 千夏(Makihara Chika)〔东京都〕
+
+06/17 前田 はる香(Maeda Haruka)〔京都府〕
+
+06/17 北村 谦次(Kitamuta Keiji)〔东京都〕（Brave Beats：达克）
+
+06/17 内田 修一(Uchida Shouichi)〔东京都〕（灼热卡巴迪：荣仓祐）
+
+06/17 すずき ももこ(Suzuki Momoko)（参考中译：铃木桃子）（旧名：MOMOKO）〔茨城県〕（天空与海洋之间：樱舞湖）
+
+06/18 若菜 よう子(Wakana Youko)（旧名：若菜叶子(中译)/若菜ようこ）〔千叶県〕（黑魔女学园：向井里鸣）
+
+06/18 南云 希美(Nagumo Nozomi)（旧名：木村希美(Kimura Nozomi)）〔埼玉県〕（SELECTION PROJECT：滨栗广海）
+
+06/18 樱庭 凉太(Sakuraba Ryouta)〔北海道〕
+
+06/18 椿 ゆきの(Tsubaki Yukino)（参考中译：椿雪乃）〔东京都〕
+
+06/18 藤 翔平(Tou Shouhei)〔福冈県〕（樱花忍法帖：游佐天信）
+
+06/18 大桥 かおり(Oohashi Kaori)（参考中译：大桥香织）〔埼玉県〕
+
+06/18 熊仓 安理纱(Kumakura Arisa)〔埼玉県〕
+
+06/18 小野 爱美(Ono Manami)〔福岛県〕
+
+06/18 栞菜(Kanna)〔东京都〕
+
+06/18 山本 悠有希(Yamamoto Yuuki)〔广岛県〕
+
+06/18 小泽 和之(Ozawa Kazuyuki)〔大阪府〕
+
+06/18 若杉 亨(Wakasugi Tooru)〔北海道〕
+
+06/19 冈本 幸辅(Okamoto Kousuke)〔大阪府〕
+
+06/19 谷川 麻依香(Tanigawa Maika)〔东京都〕
+
+06/19 别井 友美(Betsui Tomomi)〔神奈川県〕
+
+06/19 齐藤 隆史(Saitou Takashi)〔福井県〕
+
+06/19 清水 凉子(Shimizu Ryouko)〔千叶県〕
+
+06/19 蛭川 将旨(Hirukawa Masashi)〔埼玉県〕
+
+06/19 大冢 龙之介(Ootsuka Ryuunosuke)〔神奈川県〕
+
+06/19 小堀 真生(Kobori Masaki)（本名&旧名：小堀真晖）〔东京都〕
+
+06/19 谷江 玲音(Tanie Reo)〔新潟県〕（妖怪学校的新人教师：狐冢豆吉）
+
+06/19 森 千晃(Mori Chiaki)〔枥木県〕（来自星星的你(2013)：千颂伊(吹替)）
+
+06/20 濑水 晓(Semi Akeru)〔大阪府〕（飙速宅男：樱井刚）
+
+06/20 百濑 帆南(Momose Honami) 〔兵库県〕（前桥魔女：上泉舞）
+
+06/20 宫园 拓梦(Miyazono Takumu)〔兵库県〕（通灵王(2021版)：波奇）
+
+06/20 佐佐木 祐介(Sasaki Yuusuke)〔宫崎県〕（海豹突击队系列：埃里克·布莱克伯恩(吹替)）
+
+06/20 池田 ひかる(Ikeda Hikaru)（参考中译：池田光/池田辉）〔福冈県〕（下级生2：岸田纯）
+
+06/20 梶川 翔平(Kajikwa Shouhei)（旧名：小林翔平(Kobayashi Shouhei)）〔大阪府〕（魔法使之夜：木乃美芳助(游戏)）
+
+06/20 マリリン 山田(Maririn Yamada)（英文写法：Marilyn Yamada）（中译：玛丽莲·山田）（别名：山田真利江(Yamada Marie)）〔？？？〕
+
+06/20 外村 晶子(Hokamura Akiko)〔千叶県〕
+
+06/21 笠原 优子(Kasahara Yuko)〔群马県〕
+
+06/21 井坂 瞳(Isaka Hitomi)〔茨城県〕
+
+06/21 寺岛 美优(Terashima Miyu)〔兵库県〕
+
+06/21 野长濑 美慧(Nonagase Mie)〔马来西亚吉隆坡〕
+
+06/21 伊藤 麻衣(Itou Mai)（姐：真木碧）〔神奈川県〕（爱姉妹蕾：宫辻琴乃）
+
+06/21 日南 亚耶琴(Hinami Ayane)（本名&旧名：青矢りな(Aoya Rina)）〔富山県〕
+
+06/21 藤吉 浩二(Fujiyoshi Kouji)〔爱知県〕（OVERLORD：扎努克·瓦雷恩·伊格那·莱尔·凡瑟芙）
+
+06/21 酒井 夏子(Sakai Natsuko)〔广岛県〕（足球骑士：福田由里）
+
+06/22 一ノ渡 宏昭(Ichinowatari Hiroaki)（中译：一之渡宏昭）〔埼玉県〕
+
+06/22 渡边 景日(Watanabe Keihi)（旧名：渡边宏明(Watanabe Hiroaki)）〔千叶県〕
+
+06/22 丸高 大知(Marutaka Daichi)〔冈山県〕（梦王国与沉睡的100王子：托托利(游戏/初代)）
+
+06/22 池添 朋文(Ikezoe Tomifumi)〔高知県〕（圣剑学院的魔剑使：布拉卡斯·暗影王子）
+
+06/22 中村 慈(Nakamura Megumi)〔静冈県〕（关于我女友是个一本正经的处女碧池这件事：大森 一华）
+
+06/22 喜代原 まり(Kiyohara Mari)（参考中译：喜代原真理/喜代原麻里）〔福冈県〕（チーズスイートホーム あたらしいおうち：明石康子）
+
+06/22 永山 奈奈(Nagayama Nana)〔爱知県〕
+
+06/22 铃木 一也(Suzuki Kazuya)〔埼玉県〕
+
+06/22 辻 静香(Tsuji Shizuka)〔神奈川県〕
+
+06/23 长泽 遥香(Nagasawa Haruka)〔青森県〕
+
+06/23 山根 希美(Yamane Nozomi)〔冈山県〕（百合熊岚：椿辉红羽）
+
+06/23 桥本 爱仁(Hashimoto Yoshihito)〔三重県〕（智异山(2021)：郑九英(吹替)）
+
+06/23 中川 玲(Nakagawa Akira)（本名：中川玲子(Nakagawa Reiko)）〔静冈県〕（少女革命：苑田茎子）
+
+06/24 合濑 まり(Oose Mari)（旧名：おおせまり）〔福冈県〕
+
+06/24 松重 慎(Matsushige Shin)〔大分県〕（毛球权次郎：权次郎）
+
+06/24 辻坂 茜(Tsujisakai Akane)（旧名：杉山茜(Sugiyama Akane)）〔静冈県〕
+
+06/24 田中 雅之(Tanaka Masayuki)〔千叶県〕（笨蛋，测试，召唤兽：大岛老师）
+
+06/24 鸡冠井 美智子(Kaiden Michiko)〔青森県〕（新干线变形机器人SHINKALION Z：户隐大树）
+
+06/24 矶部 勇希(Isobe Yuuki)〔神奈川県〕
+
+06/24 丰原 静香(Toyohara Shizuka)〔大阪府〕
+
+06/24 加濑 英臣(Kase Hideomi)〔岐阜県〕
+
+06/24 古泽 大地(Furusawa Daichi)〔福冈県〕
+
+06/24 米丸 步(Yonemaru Ayumi)〔枥木県〕
+
+06/24 海野 由夏(Unno Yuuka)〔埼玉県〕
+
+06/25 歌原 仁美(Udahara Hitomi)〔爱媛県〕
+
+06/25 竹内 大生(Takeuchi Daiki)〔群马県〕
+
+06/25 平 修(Taira Osamu)〔兵库県〕（莎木：刃武鹰(游戏二代)）
+
+06/25 柳木 みり(Yanagi Miri)（参考中译：柳木美理）〔东京都〕（异常生物见闻录：滚）
+
+06/25 折原 くるみ(Orihara Kurumi)（参考中译：折原胡桃）〔静冈県〕（拉面赤猫：社珠子）
+
+06/25 水野 マリコ(Mizuno Mariko)（旧名&中译：水野麻梨子）〔东京都〕（黑魔女学园：春野百合）
+
+06/25 濑户川 D 太一(Setogawa D Taichi)（旧名：濑户武士(Seto Takeshi)/濑户川太一(Setogawa Taichi)(本名)）〔东京都〕
+
+06/25 蓝川 ふみ(Aikawa Fumi)（参考中译：蓝川文）（本名&旧名：锻代ふみか(Kitai Fumika)）〔神奈川県〕（怪人开发部的黑井津：九头蛇）
+
+06/26 安井 咲希(Yasui Saki)〔爱知県〕（游戏王SEVENS：妮可）
+
+06/26 山本 由美(Yamamoto Yumi)（旧名：结まある(Yui Maaru)）〔埼玉県〕
+
+06/26 德留 しづか(Tokutome Shizuka)（旧名&中译：德留志津香）〔大阪府〕
+
+06/26 榊 夏美(Sakaki Natsumi)〔埼玉県〕（追杀胖老爹(2020)：露丝·克林格(吹替)）
+
+06/26 千晶 まひろ(Chiaki Mahiro)（参考中译：千晶真寻）〔北海道〕（你是主我是仆：安娜斯塔西娅·米斯蒂娜）
+
+06/26 桐村 まり(Kirimura Mari)（参考中译：桐村真理/桐村真里）（旧名：岸和田まり(Kishiwada Mari)）〔京都府〕（少女与战车：河希忍）
+
+06/26 小野 绘梨(Ono Eri)〔茨城県〕
+
+06/26 增井 太郎(Masui Tairou)〔北海道〕
+
+06/26 浪濑 丽子(Namise Reiko)〔爱知県〕
+
+06/26 大内 樱子(Oouchi Sakurako)〔兵库県〕
+
+06/26 横山 由梨(Yokoyama Yuri)〔香川県〕
+
+06/27 内野 惠理子(Uchino Eriko)〔大阪府〕
+
+06/27 潮野 有加(Shiono Yuka)〔茨城県〕
+
+06/27 入仓 敬介(Irikura Keisuke)〔香川県〕
+
+06/27 川合 志步(Kawai Yukiho)〔爱知県〕
+
+06/27 泽田 珠里(Sawada Juni)〔东京都〕
+
+06/27 加藤 优里(Katou Yuri)〔厄瓜多尔共和国/神奈川県〕（破刃之剑：桑达·博龙）
+
+06/28 水菜 由稀(Mizuna Yuki)（旧名：保木本由起(Hokimoto Yuki)）〔？？？〕
+
+06/28 本间 诗织(Honma Shiori)〔北海道〕
+
+06/28 秋保 佐永子(Akibo Saeko)〔山形県〕
+
+06/28 小笠原 龙征(Ogasawara Ryousei)〔青森県〕
+
+06/28 岩田 瑠依(Iwata Rui)〔长崎県〕
+
+06/28 牛木 理人(Ushiki Masato)〔埼玉県〕
+
+06/29 吉田 安愉子(Yoshida Ayuko)〔埼玉県〕
+
+06/29 森 圭辅(Mori Kesuke)〔东京都〕
+
+06/29 平山 龙(Hirayama Ryou)〔大阪府〕
+
+06/29 小山 博爱(Koyama Hiroe)〔京都府〕
+
+06/29 三野 雄大(Mino Yuudai)〔大阪府〕（境界触发者S2：三浦雄太）
+
+06/29 うえむら 菜摘(Uemura Natsumi)（参考中译：上村菜摘）〔福冈県〕
+
+06/29 志村 贵博(Shimura Takahiro)〔神奈川県〕（上阳赋(2021)：王兰(吹替)）
+
+06/30 名武 爱纱(Natake Aisa)（旧名：中武有纱(Nakatake Arisa)）〔兵库県〕
+
+06/30 真田 雅隆(Sanada Masataka)（旧名：堀米正则(Horigome Masanori)）〔埼玉県〕
+
+06/30 真川 夏妃(Magawa Natsuki)（旧名：伊藤佑夏(Itou Yuuka)）〔静冈県〕（重神机潘多拉：夏湖）
+
+06/30 有友 椋香(Aritomo Ryouka)〔大阪府〕
+
+06/30 野泽 英义(Nozawa Hideyoshi)〔爱知県〕
+
+07/01 せいじろう(Seijirou)〔大阪府〕
+
+07/01 难波 茜(Nanba Akane)〔神奈川県〕
+
+07/01 中村 梨沙(Nakamura Risa)〔熊本県〕
+
+07/01 胜田 晶子(Katsuta Akiko)〔京都府〕（薄樱鬼：君菊）
+
+07/01 水谷 麻铃(Mizutani Marin)〔京都府〕（勇气魔女：下原定子）
+
+07/01 岩城 由奈(Iwaki Yuna)〔东京都〕（とらいあんぐるハート：鹰城唯子(游戏)）
+
+07/02 饭田 征利(Iida Masatoshi)〔千叶県〕
+
+07/02 绫森 千夏(Ayamori Chika)〔东京都〕
+
+07/02 佐藤 刚大(Satou Takehiro)〔福岛県〕
+
+07/02 加藤 美佐(Katou Misa)〔京都府〕
+
+07/02 萩 道彦(Hagi Michihiko)〔爱知県〕
+
+07/03 朝仓 荣介(Asakura Eisuke)〔东京都〕
+
+07/03 古米 昂平(Furumai Kohei)〔冈山県〕
+
+07/03 森本 73子(Morimoto Namiko)〔山口県〕
+
+07/03 大久保 多闻(Ookubo Tamon)〔大阪府〕
+
+07/03 藤井 诗绘里(Fujii Shieri)〔东京都〕（樱Trick：木谷有香）
+
+07/04 安 雪璃(An Yuri)（旧名：AiriS/雪璃）〔中国北京〕
+
+07/04 冈本 嘉子(Okamoto Yoshiko)〔东京都〕（GTO：樱井良子）
+
+07/04 柚木 尚子(Yuzuki Shouko)〔山口県〕（枪娘！FIRE：阿依达）
+
+07/04 杉浦 ジュリアン(Sugiura Junrian)（参考中译：杉浦朱利安）〔埼玉県〕
+
+07/04 笠原 雄介(Kasahara Yusuke)〔大阪府〕（笨笨森林日志：坂间田、马头观音）
+
+07/04 田岛 章宽(Tajima Akihiro)（本名&旧名：田中章宽(Tanaka Akihiro)）〔福冈県〕
+
+07/04 新庄 敦(Shinjyou Atushi)〔东京都〕
+
+07/05 松川 奈央(Matsukawa Nao)〔大阪府〕
+
+07/05 风村 绫乃(Kazamura Ayano)〔宫城県〕
+
+07/05 宫泽 奈奈子(Miyazawa Nanako)〔东京都〕
+
+07/05 广坂 爱(Hirosaka Ai)〔福岛県〕（R-15：神乐舞）
+
+07/05 五十岚 优树(Igarashi Yuuki)（旧名：五十岚裕树）〔东京都〕
+
+07/05 伊原 正明(Ihara Masaaki)〔大阪府〕（新干线变形机器人SHINKALION：山口长门）
+
+07/05 御子神 孝次(Mikogami Kouji)（旧名：铃木圭一郎(Suzuki Keiichirou)/里见圭一郎(Stomi Keiichirou)）〔千叶県〕（稻草人杀手(2002)：莱斯塔·德沃里克）
+
+07/06 伊藤 春香(Itou Haruka)【非3月1日北海道出身同音者】〔东京都〕
+
+07/06 内山 茉莉(Uchiyama Mari)〔奈良県〕（游戏王SEVENS：卷寿司子）
+
+07/06 千田 ミヤコ(Chida Miyako)（参考中译：千田都/千田宫子）〔茨城県〕
+
+07/06 高桥 ちんねん(Takahashi Chinnen)（旧名&中译：高桥珍年）〔秋田県〕（媳妇的美好时代(2009)：余味(吹替)）
+
+07/06 梨木 うき(Nashiki Uki)（中译：梨木侑希）（本名&旧名：荒内侑希(Arauchi Uki)）（其他中译：梨木宇希(错译)）〔青森県〕
+
+07/06 尾崎 梨乃(Ozaki Rino)〔兵库県〕
+
+07/06 清水 秀(Shimizu Suguru)〔宫崎県〕
+
+07/06 万条 一致(Manjou Icchi)〔福岛県〕
+
+07/06 林 理干(Hayashi Masayori)〔爱知県〕
+
+07/06 呼山 纪之(Koyama Noriyuki)〔青森県〕
+
+07/06 佐藤 依莉子(Satou Yoriko)〔新潟県〕
+
+07/06 朝田 实依(Asada Mie)〔兵库県〕
+
+07/06 户冢 利绘(Tozuka Rika)〔长野県〕
+
+07/07 须田 胜也(Suda Katsuya)〔千叶県〕
+
+07/07 石冢 碧(Ishizuka Midori)〔新潟県〕
+
+07/07 樱井 菜菜绘(Sakurai Nanae)〔东京都〕
+
+07/07 中村 夏绪(Nakamura Natsuo)〔神奈川県〕
+
+07/07 松泽 光星(Matsuzawa Kousei)〔东京都〕
+
+07/07 堀田 あすか(Hotta Asuka)〔东京都〕
+
+07/07 池田 亚希子(Ikeda Akiko)〔千叶県〕（13号怪异岛(2013)：梅根(吹替)）
+
+07/07 今西 ひろこ(Imanishi Hiroko)（旧名&中译：今西浩子）〔京都府〕
+
+07/07 たなか ゆうこ(Tanaka Yuuko)（旧名&中译：田中结子）〔东京都〕
+
+07/07 和泉 なゆ花(Izumi Nayuka)（参考中译：和泉那由花）（别名：七生みこと(Nanao Mikoto)）〔千叶県〕
+
+07/07 山冈 ゆり(Yamaoka Yuri)（参考中译：山冈悠莉/山冈百合/山冈悠里）〔埼玉県〕（境界的彼方：新堂爱）
+
+07/08 齐木 美帆(Saiki Miho)〔熊本県〕（BECK：南美帆）
+
+07/08 藤田 曜子(Fujida Youko)【非和歌山县出身者】〔岛根県〕
+
+07/08 市川 ひかる(Ichikawa Hikaru)（参考中译：市川光）〔东京都〕
+
+07/08 山桥 正臣(Yamahashi Masaomi)〔大分県〕（MAKE MY DAY：吉姆）
+
+07/08 户松 ゆきな(Tomatsu Yukina)（参考中译：户松幸奈/户松雪菜）〔东京都〕
+
+07/08 若林 佑(Wakabayashi Yuu)〔山梨県〕（2.43清阴高中男子排球社：外尾一马）
+
+07/08 松下 悠矢(Matsushita Yuuya)〔东京都〕
+
+07/08 杉浦 文弥(Sugiura Fumiya)〔静冈県〕
+
+07/08 藤井 刚(Fujii Gou)〔神奈川県〕
+
+07/08 二宫 丈(Ninomiya Jou)〔兵库県〕
+
+07/08 永井 凉(Nagai Ryou)〔东京都〕
+
+07/08 有马 ゆう(Arima Yuu)〔东京都〕
+
+07/08 大谷 幸司(Ootani Koji)〔？？？〕
+
+07/08 仓持 龙也(Kuramochi Tatsuya)〔神奈川県〕
+
+07/09 杉宫 孝洋(Sugimiya Takahiro)〔山梨県〕
+
+07/09 泉 翔太郎(Izumi Shoutarou)〔茨城県〕
+
+07/09 汤浅 真由美(Yuasa Mayumi)〔兵库県〕
+
+07/09 会田 栞子(Aida Shiori)〔东京都〕
+
+07/09 原 英士(Hara Hideshi)〔冈山県〕（你是主我是仆：涩谷拓也）
+
+07/09 おぎた えりこ(Ogita Eriko)（参考中译：荻田惠理子）〔兵库県〕
+
+07/09 木ノ下 ぐみ(Kinoshita Gumi)（中译：木之下茱萸）〔东京都〕（成惠的世界：丸尾千绘子）
+
+07/09 雾生 晃司(Kiryou Kouji)〔宫城県〕（小小安妮系列/Anne with an E：朱利·贝纳德(吹替)）
+
+07/10 岩波 裕(Iwanami Yutaka)（旧名：岩波ユタカ）〔长野県〕
+
+07/10 坂上 晶(Sakagami Shou)（旧名：鹰野晶(Takano Shou)）〔神奈川県〕（Another：高林郁夫）
+
+07/10 青柳 晶(Aoyagi Shou)〔东京都〕
+
+07/10 Myu(Myuu)〔岐阜県〕
+
+07/10 町田 佳优(Machida Kayu)〔埼玉県〕
+
+07/11 镜 优雅(Kagami Yuuga)〔埼玉県〕
+
+07/11 泉 英里(Izumi Eri)〔大阪府〕
+
+07/11 仁胡(Nico)〔三重県〕
+
+07/11 五十岚 雄介(Igarashi Yuusuke)〔神奈川県〕
+
+07/11 椿木 はる(Tsubaki Haru)（参考中译：椿木春）〔茨城県〕
+
+07/11 金子 隼人(Kaneko Hayato)〔神奈川県〕（拳愿阿修罗：理人）
+
+07/11 岩佐 夏芽(Iwasa Natsume)〔京都府〕（牙斗兽娘：岸本朱美&岸本红里）
+
+07/11 大谷 祐贵(Ootani Yuuki)（旧名：花村ゆうき(Hanamura Yuuki)）〔东京都〕
+
+07/11 夏野 菜绪(Natsuno Nao)（旧名：重野菜绪）〔长崎県〕（三者三叶：臼田樱）
+
+07/12 马场 圭介(Baba Keisuke)〔埼玉県〕（数码宝贝合体战争：萌萌兽之父）
+
+07/12 朝树 りさ(Asaki Risa)（参考中译：朝树里沙）〔山口県〕（Rewrite：此花露西娅）
+
+07/12 ほりえ かおり(Horie Kaori)（参考中译：堀江香织）（旧名：堀江かおり）〔？？？〕
+
+07/12 摩天楼 由香(Matenrou Yuka)（旧名：早乙女由香(Saotome Yuka)）〔长崎県〕（搞姬日常：18禁）
+
+07/12 松井 谦典(Matsui Kensuke)〔爱知県〕（白猫Project ZERO CHRONICLE：亚兰迪亚）
+
+07/12 桧尾 麻结(Hinokio Mayu)〔奈良県〕
+
+07/12 齐藤 周(Saitou Shou)〔宫城県〕
+
+07/12 古谷 あゆみ(Furutani Ayumi)〔滋贺県〕
+
+07/12 枝折 努(Shiori Tsutomu)〔长崎県〕
+
+07/12 关 雄(Seki Yuu)〔新潟県〕
+
+07/13 平林 正(Hirabayashi Tadashi)〔长野県〕
+
+07/13 北岛 奈绪(Kitajima Nao)〔神奈川県〕
+
+07/13 とくい なえ(Tokui Nae)（参考中译：德井奈惠）〔爱知県〕
+
+07/13 樱泽 优花(Sakurazawa Yuuka)（本名&旧名：栫优香(Kakoi Yuuka)）〔埼玉県〕
+
+07/13 辻森 梓咲(Tsujimori Azusa)〔千叶県〕（从路人角色开始的探索英雄谭：田边光梨）
+
+07/13 立冈 耕造(Tatsuoka Gouzou)〔东京都〕（终极蜘蛛侠/Ultimate Spider-Man：山姆·亚历山大/诺娃(吹替)）
+
+07/14 矢仓 名月(Yakura Natsuki)〔山口県〕（武装神姬：矢仓安娜）
+
+07/14 にし まゆこ(Nishi Mayuko)（参考中译：西真由子）〔大阪府〕
+
+07/14 とよた まみ(Toyota Mami)（参考中译：丰田真美）〔爱知県〕
+
+07/14 早川 舞(Hayakawa Mai)〔埼玉県〕（僵尸国度系列：安迪·卡弗(吹替)）
+
+07/14 河端 悠平(Kawabata Yuuhei)〔东京都〕
+
+07/14 丸山 京夏(Maruyama Kyouka)〔群马県〕
+
+07/15 佐原 宇奈(Sahara Una)〔东京都〕
+
+07/15 吉田 有花(Yoshida Yuuka)〔石川県〕
+
+07/15 唐崎 孝二(Karasaki Koji)〔福冈県〕
+
+07/15 涌井 直辉(Wakui Naji)〔群马県〕
+
+07/15 樱木 可奈子(Sakuragi Kanako)〔爱知県〕
+
+07/15 莺 らく(Uguisu Raku)（中译：莺乐）〔鹿儿岛県〕
+
+07/15 おぐら もとひろ(Ogura Motohiro)（本名&中译：小仓基博）〔东京都〕
+
+07/15 峰岸 佳(Minegishi Kei)〔奈良県〕（Macross Delta：西奥·居喜亚&塞·居喜亚）
+
+07/15 五十岚 由佳(Igarashi Yuka)〔千叶県〕（江户川乱步怪人二十面相DS：小林芳雄）
+
+07/15 きそ ひろこ(Kiso Hiroko)（本名&旧名&中译：木曾宽子）（其他中译(错译)：木曾裕子/木曾弘子）〔奈良県〕（再见了，我的克拉默：安达太良爱丽丝）
+
+07/16 小野 元春(Ono Motoharu)〔北海道〕（勇者赫鲁库：克雷斯）
+
+07/16 佐藤 奏美(Satou Kanami)〔岩手県〕（Double J：长宗我部彩）
+
+07/16 大曾根 将(Osone Shou)〔神奈川県〕
+
+07/16 堤 乔嗣(Tsutsumi Takashi)〔佐贺県〕
+
+07/16 冈木 阳夏(Okaki Haruka)〔长崎県〕
+
+07/16 川端 奏(Kawabata Kanade)〔石川県〕
+
+07/17 富山 あかり(Tomiyama Akari)〔神奈川県〕
+
+07/17 岩崎 爱(Iwazaki Megumi)〔北海道〕（B型H系：三乡真美）
+
+07/17 植竹 香菜(Uetake Kana)〔北海道〕（Loupus=Garous应逃避的狼：矢部佑子）
+
+07/17 加藤 涉(Katou Wataru)〔东京都〕（超超超超超喜欢你的100个女朋友：爱城恋太郎）
+
+07/17 吉泽 希梨(Yoshizawa Kiri)（本名：石冢高江(Ishizuka Takae)）〔北海道〕（大正棒球娘：大口恭子）
+
+07/17 山咲 しづ香(Yamazaki Shizuka)（中译：山咲静香）（本名：山崎静香(Yamazaki Shizuka)）〔静冈県〕
+
+07/18 前迫 爱朱佳(Maesako Asuka)（旧名：前迫 有里纱(Maesako Arisa)）〔广岛県〕
+
+07/18 白泽 かなえ(Shirosawa Kanae)（参考中译：白泽加奈惠）（旧名：ひのひかり(Hino Hikari)）〔佐贺県〕（22/7：丸山茜）
+
+07/18 朝仓 崇(Asakura Sou)〔东京都〕
+
+07/18 小林 加奈(Kobayashi Kana)〔北海道〕
+
+07/18 木村 弘一(Kimura Kouichi)〔东京都〕
+
+07/18 松浦 裕美子(Matsuura Yumiko)〔宫崎県〕
+
+07/18 风间 信彦(Kazama Nobuhiko)〔长野県〕
+
+07/18 本石 瑠美(Motoishi Rumi)〔东京都〕
+
+07/18 马越 文弥(Magoshi Fumiya)〔神奈川県〕
+
+07/18 梅田 慧子(Umeda Keiko)〔茨城県〕
+
+07/19 美美(Bibi)〔东京都〕
+
+07/19 根本 明宏(Nemoto Akihiro)〔北海道〕
+
+07/19 渡边 武彦(Watanabe Takehiko)〔兵库県〕
+
+07/19 野宫 いづみ(Nomiya Izumi)〔神奈川県〕
+
+07/19 井上 奈菜(Inoue Nana)〔？？？〕
+
+07/19 中村 公彦(Nakamura Kimihiko)〔茨城県〕
+
+07/19 风间 リチャ.(Kazama Richya)〔东京都〕
+
+07/19 东乡 すばる(Tougou Subaru)（参考中译：东乡昴）〔奈良県〕
+
+07/19 冬野 真(Fuyuno Shin)（旧名：荒井隆之(Arai Takayuki)）〔群马県〕
+
+07/19 相川 ケイ(Aikawa Kei)（中译：相川珪）（别名：蓝川珪）〔千叶県〕
+
+07/19 金子 真由美(Kaneko Mayumi)〔千叶県〕（THE iDOLM@STER CINDERELLA PROJECT：藤本里奈）
+
+07/20 一 润(Hajime Jun)（旧名：石桥润一(Ishibasi Junichi)）〔静冈県〕
+
+07/20 早川 沙希(Hayakawa Saki)〔爱媛県〕（奴隶区：千代田真理亚）
+
+07/20 仲 みのり(Naka Minori)〔？？？〕（狐仙的恋爱入门：伏见葛叶）【一说12月26日】
+
+07/20 田崎 由美子(Tasaki Yumiko)〔枥木県〕
+
+07/20 外村 茉莉子(Tonomura Mariko)〔滋贺県〕
+
+07/21 赤石 考(Akaishi Takashi)〔岩手県〕
+
+07/21 斋藤 梨奈(Saitou Rina)〔神奈川県〕
+
+07/21 望月 麻衣(Mochizuki Mai)〔东京都〕（Liar·Liar：辻友纪）
+
+07/21 岛田 纱希(Shimada Saki)〔广岛県〕（职业选手lady：阿里盖蒂）
+
+07/21 乃神 亚衣子(Nogami Aiko)（旧名：井上亚纪(Inoue Aki)）〔冈山県〕
+
+07/21 夏川 朋子(Natsukawa Tomoko)（本名&旧名：川畑朋子(Kawahata Tomoko)）〔东京都〕
+
+07/22 广濑 亚梨沙(Hirose Arisa)〔千叶県〕（Fly Babies：桃）
+
+07/22 高木 朋弥(Takagi Tomoya)〔群马県〕（宇崎学妹想要玩耍！：榊逸仁）
+
+07/22 小泽 みなみ(Ozawa Minami)（参考中译：小泽南/小泽美波）〔三重県〕
+
+07/22 神木 祐希(Kamiki Yuuki)（本名&旧名：岩波祐希(Iwanami Yuki)）〔神奈川県〕
+
+07/22 あべ るみ(Abe Rumi)（旧名&中译：阿部留美）〔山形県〕（恋恋七人组：饭田桥和子）
+
+07/22 桐原 明良(Kirihara Akira)〔东京都〕
+
+07/22 木梨 成之(Kinashi Naruyuki)〔静冈県〕
+
+07/23 渡边 匡敦(Watanabe Kuniatsu)〔静冈県〕
+
+07/23 江场 梨绘子(Eba Rieko)〔爱知県〕
+
+07/23 谷川 诚(Tanikawa Makoto)〔埼玉県〕
+
+07/23 泷口 巧(Takiguchi Takumi)〔埼玉県〕
+
+07/23 高宫 彩织(Takamiya Saori)〔福冈県〕
+
+07/23 美马 利惠子(Mima Rieko)〔大阪府〕
+
+07/23 蓝泽 步实 (Aizawa Ayumi)〔东京都〕
+
+07/23 三苫 纮平(Mitoma Kouhei)〔福冈県〕（豆猫：肌色）
+
+07/23 大井 麻利衣(Ooi Marie)〔东京都〕（博德明太!麻辣子酱：小春奶奶）
+
+07/23 田每 なつみ(Tagoto Natsumi)〔德岛県〕（SUMMER LESSON：宫本光(游戏)）
+
+07/23 ほなみ(Honami)（中译：保渚美）（本名：渡边保渚美(Watanabe Honami)）〔埼玉県〕（まほうのルミティア Luminary Tears：ペテルティア）
+
+07/23 イノサコ イノコ(Inosako Inoko)（参考中译：猪砂猪子）（旧名：猪砂和世(Inosako Kazuyo)）〔奈良県〕（熊巫女：德山真千子）
+
+07/24 稻垣 好(Inagaki Konomi)〔新潟県〕（我的妻子没有感情：米娜）
+
+07/24 丸山 エレキ(Maruyama Ereki)（参考中译：丸山瑛历）〔长野県〕
+
+07/24 横田 成吾(Yokota Seigo)〔新潟県〕（狼少女和黑王子：青木凉太）
+
+07/24 内海 安希子(Utsumi Akiko)（宝冢艺名：美宙果恋(Misora Karen)）〔宫城県〕
+
+07/24 成金屋 清富(Narikinya Kiyotomi)（本名&旧名：五岛清富(Gojima Kiyotomi)）〔大阪府〕
+
+07/24 大浪 嘉仁(Oonami Yoshihiro)〔青森県〕
+
+07/24 和田 みちる(Wada Michiru)〔千叶県〕
+
+07/24 江越 美纪(Egoshi Miki)〔福冈県〕
+
+07/25 川口 宰曜子(Kawaguchi Sayoko)〔大阪府〕
+
+07/25 村竹 あおい(Muratake Aoi)〔埼玉県〕
+
+07/25 九里 柚贵(Kuri Yuki)〔京都府〕
+
+07/25 西铭 宏太(Nishime Kouta)〔东京都〕
+
+07/25 岛田 武幸(Shimada Takeyuki)〔神奈川県〕
+
+07/25 今井 凉雅(Imai Ryouga)（旧名：渡边凌(Watanabe Ryou)）〔茨城県〕
+
+07/25 西条 和(Saijou Nagomi)（本名：浮田早纪子(Ukita Sakiko)）〔兵库県〕（22/7：泷川美羽）
+
+07/26 桥本 浩志(Hashimoto Hiroshi)（旧名：桥本博）〔千叶県〕
+
+07/26 桥本 启子(Hashimoto Keiko)〔熊本県〕
+
+07/26 洼田 爱(Kubota Ai)〔奈良県〕
+
+07/26 冈田 真弓(Okada Mayumi)〔冈山県〕
+
+07/26 平安山 彩(Henzan Aya)〔东京都〕
+
+07/26 岸本 百惠(Kishimoto Momoe)〔兵库県〕
+
+07/26 山崎 雅也(Yamazaki Masaya)〔东京都〕
+
+07/26 百月 丽美华(Momozuki Remika)〔？？？〕
+
+07/27 中林 新夏(Nakabayashi Nina)〔东京都〕
+
+07/27 石丸 纯(Ishimaru Jun)〔滋贺県〕
+
+07/27 笹村 泉(Sasamura Izumi)〔埼玉県〕
+
+07/27 寺町 南(Teramachi Minami)〔爱知県〕
+
+07/27 丸冢 香奈(Marutsuka Kana)〔兵库県〕
+
+07/27 石井 七央子(Ishii Naoko)（旧名：石井直子）〔东京都〕
+
+07/27 住友 七绘(Sumitomo Nanae)〔兵库県〕（宝贝婆婆：神宫寺温子）
+
+07/27 新子 夏代(Atarashi Natsuyo)〔大阪府〕（元气少女结缘神：鬼切）
+
+07/27 楠本 一星(Kusumoto Issei)（旧名：中岛一星(Nakajima Issei)）〔熊本県〕
+
+07/27 高仓 悠生(Takakura Haruki)〔静冈県〕（夫妻的世界(2020)：李俊英(吹替)）
+
+07/27 明海 はる花(Akemi Haruka)（参考中译：明海春花）（本名&旧名：寺崎明实(Terasaki Akemi)）〔熊本県〕
+
+07/27 松山 纱香(Matsuyama Sayaka)（旧名：松本理美(Matsumoto Satomi)）〔神奈川県〕（寻找失去的未来：月代）
+
+07/28 つきの はる(Tsukino Haru)（参考中译：月野春）〔广岛県〕
+
+07/28 中村 尚子(Nakamura Naoko)〔大阪府〕（名侦探柯南：笕苑子）
+
+07/28 若佐 なつみ(Wakasa Natsumi)（参考中译：若佐奈津美/若佐夏美）〔神奈川県〕
+
+07/28 圣 みほ子(Hijiri Mihoko)〔广岛県〕
+
+07/28 吉原 光(Yoshihara Hikaru)〔神奈川県〕
+
+07/28 花井 千隼(Hanai Chihaya)〔静冈県〕
+
+07/28 寺本 惠里加(Teramoto Erika)〔三重県〕
+
+07/28 吉野 七海(Yoshino Nanami)〔千叶県〕
+
+07/29 矢尾 幸子(Yao Yukiko)〔兵库県〕
+
+07/29 仲野 七惠(Nakano Nanae)〔新潟県〕
+
+07/29 上田 瞳(Ueda Hitomi)〔京都府〕（愿来世为他人：染井吉乃）
+
+07/29 鸣海 崇志(Narumi Takashi)〔青森県〕（天穗之咲稻姬：魂爷）
+
+07/29 笹本 菜津枝(Sasamoto Natsue)〔埼玉県〕（神赐之门：特里斯坦）
+
+07/30 れいみ(Reimi)（参考中译：丽美/玲美/礼美）〔高知県〕
+
+07/30 渡边 优里奈(Watanabe Yurina)〔长野県〕（新足球小将(第4作)：立花和夫）
+
+07/30 冈本 彩夏(Okamoto Ayaka)〔滋贺県〕（樱花树下的时间胶囊(OVA)：大须琴音）
+
+07/30 大野 贵史(Oono Takafumi)〔埼玉県〕
+
+07/30 若林 正(Wakabayashi Tadashi)〔东京都〕
+
+07/30 本谷 史织(Motodani Shiori)〔广岛県〕
+
+07/31 岩元 里夏(Iwamoto Rika)（旧名：岩本里夏）〔静冈県〕
+
+07/31 松井 郁洋(Matsui Fumihiro)〔群马県〕（B型H系：黑川太）
+
+07/31 川边 俊介(Kawabe Syunsuke)〔神奈川県〕（暗杀教室：木村正义）
+
+07/31 西山 慎哉(Nishiyama Shinya)〔岩手県〕（战翼的希格德莉法：龟城·司）
+
+07/31 佐藤 晴香(Satou Haruka)〔福冈県〕（忍者服部君(2012版)：河合梦子(初代)）
+
+07/31 野中 カオリ(Nonaka Kaori)〔北海道〕（CROSS†CHANNEL PS2版：山边美希）
+
+07/31 矢口 アサミ(Yaguchi Asami)（参考中译：矢口麻美）〔埼玉県〕（Dies irae：艾路诺尔·冯·威登堡）
+
+07/31 寺崎 千波也(Terasali Chihaya)〔北海道〕
+
+07/31 近田 英纪(Konda Hideki)〔三重県〕
+
+07/31 村上 达哉(Murakami Tatsuya)〔兵库県〕
+
+07/31 宫下 弘充(Miyashita Hiromitsu)〔东京都〕
+
+07/31 结川 彩(Yuikawa Aya)〔鸟取県〕
+
+07/31 森永 明日夏(Morinaga Asuka)〔广岛県〕
+
+07/31 石川 匠(Ishikawa Takumi)〔北海道〕
+
+07/31 义达 樱祐(Yoshitatsu Ousuke)〔枥木県〕
+
+07/31 高桥 奈津江(Takahashi Natsue)〔神奈川県〕
+
+08/01 一马 芳和(Kazuma Yoshikazu)〔神奈川県〕
+
+08/01 田中 慎二(Tanaka Shinji)〔冲绳県〕
+
+08/01 对马 大树(Tsushima Daiki)〔青森県〕
+
+08/01 佐藤 美梦(Satou Mimu)〔宫城県〕
+
+08/01 久冈 直洋(Hisaoka Naohiro)〔埼玉県〕
+
+08/01 木村 凉香(Kimura Suzuka)〔神奈川県〕
+
+08/01 内田 唯人(Uchida Yuito)〔神奈川県〕
+
+08/01 藤井 ゆき(Fujii Yuki)〔北海道〕
+
+08/01 矢野 广彰(Yano Hiroaiki)〔京都府〕
+
+08/01 泷泽 树(Takizaka Itsuki)〔埼玉県〕（天使特警：佐玛）
+
+08/01 平松 真奈实(Hiramatsu Manami)〔千叶県〕（ayakashi：赤间美佳）
+
+08/01 樱井 みき(Sakurai Miki)（中译：樱井未来）（旧名：长濑未来(Nagase Miki)）〔埼玉県〕
+
+08/01 日向 裕罗(Hirata Yura)（旧名：西村ひな(Nishimura Hina)）〔？？？〕（D.C. 初音岛：白河小鸟）
+
+08/01 天野 エリカ(Amamo Erika)（旧名&中译：天野绘里香）〔冈山県〕（魔法少女奈叶：高町桃子）
+
+08/02 竹内 想(Takeuchi Sou)〔神奈川県〕（现在很美丽(2022)：李现在(吹替)）
+
+08/02 うさみ ともこ(Usami Tomoko)（参考中译：宇佐美智子）〔东京都〕（约会大作战：箕轮）
+
+08/02 代 なつみ(Dai Natsumi)〔东京都〕
+
+08/02 壹岐 绍未(Ike Tsugumi)〔埼玉県〕
+
+08/02 正木 沙织(Masaki Saori)〔东京都〕
+
+08/02 松浦 义之(Matsyura Yoshiyuki)〔香川県/兵库県〕
+
+08/02 重水 麻由(Shigemizu Mayu)〔鹿儿岛県〕
+
+08/02 阎 子丹(En Shitan)〔东京都〕
+
+08/03 邑上 铃歌(Murakami Suzuka)〔爱知県〕
+
+08/03 星野 早(Hoshino Saki)〔北海道〕
+
+08/03 露崎 亘(Tsuyuzaki Wataru)〔福岛県〕
+
+08/03 富田 沙织(Tomita Saori)〔千叶県〕
+
+08/03 大西 望(Oonishi Nozomi)〔冈山県〕
+
+08/03 清水 祐太朗(Shimizu Yuutarou)〔东京都〕
+
+08/03 小仓 直宽(Ogusa Naohiro)〔鹿儿岛県〕（滨虎：光彦）
+
+08/03 楠 浩子(Kusunoki Hiroko)〔福冈県〕（B型H系：小林真希）
+
+08/03 山口 享佑子(Yanaguchi Kyouko)〔大阪府〕（银魂：少女道满）
+
+08/03 谷口 淳志(Taniguchi Atsushi)〔大阪府〕（number24：山田宗介）
+
+08/03 和泉 治希(Izumi Haruki)（本名&旧名：松田治希(Matsuda Haruki)）〔大阪府〕
+
+08/03 こばたけ まさふみ(Kobatake Masafumi)（参考中译：小畠雅史/小畑正文/小畑昌文）〔大阪府〕（BUCCHIGIRI？！：千夜）
+
+08/04 成花(Sonfua)（其他拼写：Songhwa）〔大阪府〕
+
+08/04 一ノ濑 裕香(Ichinose Yuka)（中译：一之濑裕香）〔熊本県〕
+
+08/04 石崎 花澄子(Ishizaki Kazuko)（旧名：石崎和子）〔大阪府〕
+
+08/04 水濑 七海(Minase Nanami)〔千叶県〕（上阳赋(2021)：阿越(吹替)）
+
+08/04 叶矢 りか(Kanaya Rika)（参考中译：叶矢里香/叶矢里佳）〔冲绳県〕
+
+08/04 白川 爱实(Shirakawa Masami)（旧名：保坂爱实(Hosaka Manami)）〔京都府〕
+
+08/04 杉山 滋美(Sugiyama Shigemi)〔静冈県〕（世界上最美丽的我的女儿(2019)：朴善子(吹替)）
+
+08/04 ほた かける(Hota Kakeru)（参考中译：保田翔）（别名：萤灯翔(Hotarubi Kakeru)）〔香川県〕
+
+08/04 小岛 ゆい(Kojima Yui)（中译：小岛由依）（旧名：小林由依(Kobayashi Yui)）〔埼玉県〕（绯染天空：松冈绮罗路(游戏)）
+
+08/04 乙幡 美成(Otohata Mina)〔大阪府〕
+
+08/04 河内 宏大(Kawauchi Koudai)〔京都府〕
+
+08/04 林 まどか(Hayashi Madoka)〔长野県〕
+
+08/04 森野 彰太(Morino Shouta)〔大阪府〕
+
+08/05 近藤 爱梨(Kondou Airi)〔爱知県〕
+
+08/05 坂本 稳(Sakamoto Dan)〔大阪府〕
+
+08/05 白井 莲水(Shirai Hasumi)〔神奈川県〕
+
+08/05 山田 丰(Yamada Yutaka)〔东京都〕
+
+08/05 宫村 苍(Miyamura Aoi)〔三重県〕
+
+08/05 堀江 秀一(Horie Shouichi)〔福山県〕
+
+08/05 野椛 ゆうか(Nohana Yuuka)（参考中译：野椛优香）〔兵库県〕
+
+08/05 坂井 志满(Sakai Shima)〔长野県〕（小神拳(元气拳王)：田沼爱子）
+
+08/05 早川 慧(Hayashikawa Kei)〔长野県〕（冷然的天秤：单车避ヶ夫）
+
+08/05 中岛 卓也(Nakashima Takuya)〔富山県〕（无能的奈奈：饭岛潜生）
+
+08/05 龟谷 理子(Kamegai Ayako)〔北海道〕（温泉屋小女管家：向坂麻由佳）
+
+08/06 小出 悦子(Koide Etsuko)（旧名：小出えつ子）〔东京都〕
+
+08/06 加藤 健(Katou Ken)〔神奈川県〕（游戏王SEVENS：剑真剑）
+
+08/06 上村 悠华子(Uemura Yukako)〔东京都〕（足球骑士：高野晶）
+
+08/06 石井 ゆかり(Ishii Yukari)（参考中译：石井由香里）〔神奈川県〕
+
+08/06 寺井 智之(Tomoyuki Terai)〔大阪府〕（薄樱鬼碧血录：荒井郁之助）
+
+08/06 前川 凉子(Maekawa Ryoko)〔神奈川県〕（我要"招架"一切\~反误解的世界最强想成为冒险者\~：琳）
+
+08/06 大川 香织(Ookawa Kaori)〔东京都〕
+
+08/06 渡なべ ゆき子(Watanabe Yukiko)〔东京都〕
+
+08/06 澄川 里佳子(Sumikawa Rikako)〔岛根県〕
+
+08/06 池内 健(Ikeuchi Ken)〔千叶県〕
+
+08/07 萩谷 麻理奈(Hagiya Marina)〔东京都〕
+
+08/07 汉那 绫花(Kanna Ayaka)〔冲绳県〕
+
+08/07 水田 雅哉(Mizuta Masaya)〔山口県〕（真·三国无双系列：公孙瓒）
+
+08/08 吉川 宽司(Yoshikawa Hiroshi)〔岛根県〕（网球王子：洲本）
+
+08/08 久条 枫(Kujyou Kaede)（旧名：川上枫(Kawakami Kaede)）〔福冈県〕
+
+08/08 吉宫 瑠织(Yoshimiya Ruri)（旧名：なつのひまわり(Natsuno Himawari)/清澄なつは(Kiyosumi Natsuha)/海乃るり(Umino Ruri)）（本名：中村夏实(Nakamura Natsumi)）〔东京都〕（22/7：户田纯）
+
+08/08 盐出 美彩希(Shiode Misaki)〔大阪府〕
+
+08/08 仓田 叶子(Kurata Youko)〔东京都〕
+
+08/08 胜吕 美和子(Suguro Miwako)〔神奈川県〕
+
+08/08 中村 达也(Nakamura Tatsuya)〔静冈県〕
+
+08/08 猪股 速十(Inomata Hayato)〔东京都〕
+
+08/08 矢崎 和哉(Yazaki Kazuya)〔长野県〕
+
+08/08 石川 荣一(Ishikawa Eiichi)〔枥木県〕
+
+08/09 高岭 岩(Takamine Iwao)〔广岛県〕
+
+08/09 观月 奏多(Mizuki Kanata)〔神奈川県〕
+
+08/09 酒井 玲(Sakai Rei)〔神奈川県〕
+
+08/09 庄司 樱(Shoji Sakura)〔茨城県〕
+
+08/09 坂 征哉(Ban Seiya)〔神奈川県〕
+
+08/09 平野 有纱(Hirano Arisa)〔岐阜県〕
+
+08/09 中岛 优贵(Nakajima Yuuki)〔千叶県〕
+
+08/09 真野 恭辅(Mano Kyosuke)〔埼玉県〕
+
+08/09 滨上 风音(Hamagami Fuuto)〔长野県〕
+
+08/09 三浦 润也(Miura Junya)〔埼玉県〕（地球防卫少年：辻本）
+
+08/09 古屋 亚南(Furuya Anan)〔山梨県〕（OVERTAKE!：浅雏悠）
+
+08/09 松浦 秀香(Matsuura Shouka)〔兵库県〕（最响Kamizmode!：皮可塔）
+
+08/09 小鹿 なお(Ojika Nao)（参考中译：小鹿奈绪/小鹿奈央）〔爱知県〕（大正少女御伽话：渥美惠太）
+
+08/10 藤宫 るり(Fujimiya Ruri)（参考中译：藤宫瑠璃）〔东京都〕
+
+08/10 佐佐木 日菜子(Sasaki Hinako)〔岩手県〕（闪电十一人：音无春奈）
+
+08/10 国府 咲月(Kokubu Satsuki)〔宫崎県〕（柚木家的四兄弟。：二阶堂悠真）
+
+08/10 村田 遥(Murata Haruka)〔三重県〕
+
+08/10 乾 夏宁(Inui Natsune)〔京都府〕
+
+08/10 足立 由夏(Adachi Yuka)〔东京都〕
+
+08/10 松村 圭人(Matsumura Keito)〔北海道〕
+
+08/10 寺田 明正(Terada Akimasa)〔东京都〕
+
+08/10 宝田 直人(Takarada Naoto)〔千叶県〕
+
+08/10 井上 真希(Inoue Maki)〔千叶県〕
+
+08/10 铃木 真实(Suzuki Mami)〔千叶県〕
+
+08/11 门松 凉(Kasomatsu Ryou)〔神奈川県〕
+
+08/11 新井 遥夏(Arai Haruka)〔神奈川県〕
+
+08/11 米山 有佳子(Yoneyama Yokako)〔东京都〕
+
+08/11 东条 达也(Tojou Tatsuya)〔神奈川県〕
+
+08/11 月城 亚美(Tsukishiro Ami)〔大阪府〕
+
+08/11 中岛 和辉(Nakashima Kazuki)〔爱知県〕
+
+08/11 尾又 淑惠(Omata Yoshie)〔神奈川県〕
+
+08/11 长尾 雅世(Nagao Masayo)〔神奈川県〕
+
+08/11 アナンド 雪(Anando Yuki)（参考中译：安纳德·雪/阿南德雪）〔福冈県〕（真相捕捉/The Capture：汉娜 · 罗伯茨(吹替)）
+
+08/11 あらまり(Aramari)（本名：新井真理子(Arai Mariko)）（别名：Aramary）〔神奈川県〕（仙界传封神演义 ～哪咤的大冒险～：哪咤）
+
+08/12 大谷 秀一郎(Ohtani Shuichiro)〔东京都〕（ayakashi：角屋昭吾）
+
+08/12 尾崎 亚梨子(Ozakia Arisu)（旧名：甲田容子(Kouda Youko)）〔神奈川県〕
+
+08/12 舩坂 泰子(Funasaka Yasuko)〔京都府〕（灰色的果实/灰色的乐园：坂下千秋&广冈环）
+
+08/12 河崎 奈月( Kawasaki Natsuki)〔静冈県〕
+
+08/12 久山 卓也(Kuyama Takuya)〔滋贺県〕
+
+08/12 水岛 マミ(Mizushima Mami)〔大阪府〕
+
+08/12 伯川 涉子(Hakugawa Shouko)〔兵库県〕
+
+08/13 田中 文哉(Tanaka Fumiya)〔神奈川県〕
+
+08/13 金子 沙希(Kaneko Saki)〔富山県〕
+
+08/13 田中 由香(Takanaka Yuka)〔东京都〕
+
+08/13 森田 修二朗(Morita Syujiro)〔山梨県〕
+
+08/13 朝川 达也(Asakawa Tatsuya)〔茨城県〕
+
+08/13 山内 平(Yamauchi Taira)〔东京都〕
+
+08/13 久保田 惠(Kubota Megumi)〔东京都〕（纸箱战机：山野万）
+
+08/13 纪 昌利(Kii Masatoshi)〔神奈川県〕（无口的森田小姐：真由之父）
+
+08/13 长松 ひろし(Nagamatsu Hiroshi)（旧名&中译：长松博史）〔神奈川県〕
+
+08/13 西条 拓也(Saijou Takuya)（旧名：平丸拓实(Hiramaru Takumi)/平山拓实(Hirayama Takuma)）〔福冈県〕
+
+08/14 相马 优(Souma Yuu)〔新潟県〕（奇喵的画家：奇奇）
+
+08/14 山门 久美(Yamakado Kumi)〔东京都〕（魔法提琴手：帕蒂）
+
+08/14 木村 武文(Kimura Takefumi)（旧名：林寸(Rin Sun)）〔神奈川県〕
+
+08/14 滨本 大史(Hamamoto Taishi)〔兵库県〕（地下城与勇士逆转之轮：信耶）
+
+08/14 こぐれ 修(Kogure Osamu)（旧名&中译：枯暮修）〔山口県〕（超速变形螺旋杰特：Eraser King）
+
+08/14 东云 ゆうさ(Shinonome Yuusa)（参考中译：东云友佐）（旧名：游佐麻友美(Yuusa Ayumi)）〔北海道〕（游戏王GX：斋王琢磨(幼少期)）
+
+08/14 铃木 美穗(Suzuki Miho)〔福岛県〕
+
+08/14 冈本 瑠美(Okamoto Rumi)〔静冈県〕
+
+08/14 吉原 ナツキ(Yoshihara Natsuki)〔北海道〕
+
+08/14 桑田 まどか(Kuwata Madoka)〔福岛県〕
+
+08/14 富冈 佑介(Tomioka Yuusuke)〔埼玉県〕
+
+08/14 松元 由树(Matsumoto Yoshiki)〔新潟県〕
+
+08/14 高桥 夏季(Takahashi Natsuki)〔福岛県〕
+
+08/14 佐藤 慧(Satou Kei)〔？？？〕
+
+08/15 川西 ゆうこ(Kawanishi Yuuko)〔广岛県〕
+
+08/15 五味 纱也香(Gomi Sayaka)〔东京都〕
+
+08/15 佐藤 愁贵(Satou Shouki)〔埼玉県〕
+
+08/15 志田 良太(Shida Ryota)〔长崎県〕
+
+08/15 森 なつみ(Mori Natsumi)〔福岛県〕
+
+08/15 深雪 ゆあ(Fuyuki Yua)（参考中译：深雪结爱）〔岛根県〕
+
+08/15 铃木 みこ(Suzuki Miko)（旧名&中译：铃木美子）〔埼玉県〕
+
+08/15 本丸 ひとみ(Honmaru Hitomi)（旧名&中译：本丸仁美）〔兵库県〕
+
+08/15 大垣 理香(Ohgaki Rika)〔大阪府〕（SweetHoneyComing：多贺谷麻里乃）
+
+08/15 香乃 みお(Kouno Mio)（中译：香乃未央）（旧名：伊藤未央(Itou Mio)）〔青森県〕
+
+08/15 羽月 理惠(Hazuki Rie)（旧名：大和田理惠(Oowada Rie)）〔埼玉県〕（恋姬无双：颜良）
+
+08/15 九 ともか(Ichijiku Tomoka)（中译：九友佳）（旧名：村山友佳(Murayama Tomoka)）〔千叶県〕
+
+08/16 佐原 诚(Sahara Makoto)〔岐阜県〕
+
+08/16 濑能 雅斗(Senou Masato)〔千叶県〕
+
+08/16 藤井 彩加(Fujii Ayaka)〔茨城県〕
+
+08/16 石川 佳典(Ishikawa Yoshinori)〔群马県〕
+
+08/16 野中 亮(Nonaka Ryou)〔佐贺県〕
+
+08/16 海江田 航平(Kaieda Kohei)〔美国伊利诺伊州〕
+
+08/16 伊藤 たくも(Itou Takumo)（参考中译：伊藤太云）〔爱知県〕
+
+08/17 松井 栞里(Matsui Shiori)〔神奈川県〕
+
+08/17 小室 洋子(Komuro Youko)〔宫城県〕
+
+08/17 羽月 まり(Hazuki Mari)〔三重県〕
+
+08/17 荻野 佳奈(Ogino Kana)〔神奈川県〕（Sonny Boy：上海）
+
+08/17 岛野 花(Shimano Hana)〔千叶県〕（恋语轻唱：木野日鞠）
+
+08/17 藤堂 真衣(Toudou Mai)〔福岛県〕（吃豆人世界：インキー）
+
+08/17 安斋 龙太(Anzai Ryouta)〔东京都〕（我家有个狐仙大人：影牙）
+
+08/17 青木 崇(Aoki Takashi)〔山口県〕（勇者死了！：艾扎克·刚多纳）
+
+08/17 三瓶 雄树(Sanpei Yuuki)〔东京都〕（僵尸国度系列：赫克托·阿尔瓦雷茨/蝎子(吹替)）
+
+08/17 あらい しずか(Arai Shizuka)（旧名：北条静香(Hojou Shizuka)/荒井静香(中译)）〔东京都〕（下级生：加纳凉子）
+
+08/18 堀中 优希(Horinaka Yuki)〔东京都〕（生徒会的一存：椎名真冬）
+
+08/18 石川 和之(Ishikawa Kazuyuki)〔石川県〕（魍魉之匣：木下）
+
+08/18 远藤 智佳(Etou Tomoka)〔东京都〕（圣斗士冥王篇：瞬(幼年期)）
+
+08/18 中根 久美子(Nagane Kumiko)〔福岛県〕（虽然是玻璃假面：北岛真夜&月影千草）
+
+08/18 须部 和佳奈(Sube Wakana)〔千叶県〕
+
+08/18 木崎 准(Kizaki Jun)〔埼玉県〕
+
+08/18 平井 诚一(Hirai Seiichi)〔广岛県〕
+
+08/18 末广 みみ(Suehiro Mimi)〔兵库県〕
+
+08/18 斋藤 凌(Saito Himuro)〔神奈川県〕
+
+08/19 峰村 大喜(Minemura Daiki)〔山梨県〕
+
+08/19 石井 一贵(Ishii Kazutaka)〔神奈川県〕
+
+08/19 鞍挂 夏生(Kurakake Natsumi)〔埼玉県〕
+
+08/19 小杉 ゆう子(Kosugi Yuuko)〔静冈県〕
+
+08/19 饭田 义树(Iida Yoshiki)〔东京都〕
+
+08/19 竹内 绚子(Takeuchi Ayako)〔千叶県〕（哥斯拉S.P\<奇点\>：金原里美）
+
+08/19 蓝川 千寻(Aoikawa Chihiro)〔东京都〕（がんばれ!メメ子ちゃん：柏叶メメ子）
+
+08/19 中尾 友纪(Nakao Yuki)〔大分県〕（人造昆虫KABUTO BORG V×V：山田早苗）
+
+08/19 进藤 こころ(Shindou Kokoro)（参考中译：进藤心）〔神奈川県〕（女棒甲子园：大道寺真央）
+
+08/20 佐佐木 笃(Sasaki Atsushi)〔神奈川県〕（Punch Line：秩父兰堂）
+
+08/20 宫本 かおり(Miyamoto Kaori)〔东京都〕（百年的新娘(2014)：李鹿美(吹替)）
+
+08/20 羽鸟 まみ(Hatori Mami)（中译：羽鸟磨美）（本名&旧名：羽藤磨美(Hatou Mami)）〔广岛県〕
+
+08/20 伊藤 亚祐美(Itou Ayumi)〔岩手県〕
+
+08/20 荒木 光(Araki Hikaru)〔埼玉県〕
+
+08/20 谷 和希(Tani Kazuki)〔高知県〕
+
+08/20 坂井 芳江(Sakai Yoshie)〔新潟県〕
+
+08/20 师冈 佑子(Morooka Yuuko)〔群马県〕
+
+08/21 赤堀 晃司(Akahori Koji)〔东京都〕
+
+08/21 大久保 宇将(Ookubo Ushou)〔鹿儿岛県〕
+
+08/21 小林 敬(Kobayashi Kei)〔千叶県〕
+
+08/21 千村 一真(Chimura Kazuma)〔长野県〕
+
+08/21 北川 真理奈(Kitagawa Marina)〔广岛県〕
+
+08/21 岛田 知美(Shimada Tomomi)〔加拿大〕
+
+08/21 稻田 佳乃香(Inada Kanoko)〔香川県〕
+
+08/21 蓝田 纱矢华(Aida Sayaka)〔东京都〕
+
+08/21 堀 总士郎(Hori Soushirou)〔北海道〕（BREAKERS：监督）
+
+08/21 福原 由莉奈(Fukuhara Yurina)〔冈山県〕（R-15：鸣唐吹音）
+
+08/21 东 龙一(Azuma Ryouishi)〔爱知県〕（忍者乱太郎：竹谷八左卫门）
+
+08/21 むらやま かづき(Murayama Kazuki)（旧名&中译：村山香月）〔千叶県〕（结界师：刃鸟美希）
+
+08/22 永牟田 萌(Nagamuta Moe)〔福冈県〕（星灵感应：宝木遥乃）
+
+08/22 下村 美穗(Shimomura Miho)〔大阪府〕（地狱少女二笼：内山美衣）
+
+08/22 德永 アキラ(Tokunaga Akira) （参考中译：德永明/德永彰）〔奈良県〕
+
+08/22 冈村 明香(Okammura Haruka)〔神奈川県〕（间谍过家家：尤因·埃奇伯格）
+
+08/22 中原 日菜(Nakahara Hina)〔千叶県〕
+
+08/22 林 直树(Hayashi Naoki)〔长野県〕
+
+08/23 中岛 佳叶(Nakajima Kayou)〔东京都〕
+
+08/23 响 惠瑠(Hibiki Meguru)〔茨城県〕
+
+08/23 小矶 岳人(Koiso Takehito)〔东京都〕
+
+08/23 笹井 千惠子(Sasai Chieko)〔东京都〕（寄生兽：泉信子）
+
+08/23 おか なつこ(Oka Natsuko)（参考中译：冈夏子）〔埼玉県〕
+
+08/23 加藤 祐梨(Kato Yuri)〔东京都〕（异种族风俗娘评鉴指南：米尔基）
+
+08/23 鹰雄 叶月(Takao Hazuki)（本名&旧名：高尾叶月(Takao Hazuki)）〔千叶県〕
+
+08/24 畑中 万里江(Hatanaka Marie)〔爱知県〕（俺物语！：步）
+
+08/24 尾河 奈穗(Ogawa Naho)（旧名：おがわなほ）〔爱知県〕
+
+08/24 田中 健大(Tanaka Kenta)〔爱知県〕（境界触发者：犬饲澄晴）
+
+08/24 福原 かつみ(Fukuhara Katsumi)（旧名&中译：福原克己）〔茨城県〕（W\'z：荒城幸也/Y\'s）
+
+08/24 吉川 りり(Yoshikawa Riri)（参考中译：吉川莉莉）（旧名：吉川薰(Yoshikawa Kaori/Kaoru)）〔大阪府〕
+
+08/24 冈崎 雄飞(Okazaki Yuuhi)〔千叶県〕
+
+08/24 野村 大地(Nomura Daichi)〔兵库県〕
+
+08/24 相泽 有纪(Aizawa Yuki)〔宫城県〕
+
+08/24 有马 莞奈(Arima Kanna)〔兵库県〕
+
+08/25 汤宫 由海(Yumiya Yumi)〔埼玉県〕
+
+08/25 新木 凉音(Shinki Suzune)〔东京都〕
+
+08/25 中条 智世(Choujou Tomoyo)〔三重県〕（碧蓝航线：阿贾克斯）
+
+08/25 米山 明日美(Yoneyama Asumi)〔秋田県〕（Angolmois 元寇合战记：燵）
+
+08/25 石桥 美佳(Ishibashi Mika)〔广岛県〕（拜托了，我的主人：谷口雅也&柊铃香）
+
+08/25 うすい たかやす(Usui Takayasu)（本名&旧名&中译：臼井孝康）〔东京都〕（幻影少年：独田）
+
+08/25 さがら えみ(Sagara Emi)（旧名&中译：相乐惠美）〔福岛県〕（火影忍者：宇智波美琴）
+
+08/25 城内 由茄子(Kiuchi Yukako)〔神奈川県〕（保姆俱乐部/The Baby-Sitters Club(2020网飞网剧系列)：道恩·谢弗(吹替)）
+
+08/26 よねざわ たかし(Yonezawa Takashi)（旧名&中译：米泽雄）〔京都府〕
+
+08/26 槿原 大(Mukugehara Masaru)〔岛根県〕（梦王国与沉睡的100王子：吉伊(游戏/初代)）
+
+08/26 渡谷 美帆(Wataya Miho)〔神奈川県〕（迷失太空(2018网飞网剧系列)：朱迪·罗宾逊 (吹替)）
+
+08/26 泽野 智亮(Sawano Tomoaki)〔兵库県〕
+
+08/27 木村 圭助(Kimura Keisuke)〔东京都〕
+
+08/26 古泽 勇人(Furusawa Hayato)〔宫崎県〕
+
+08/27 坂本 麻美(Sakamoto Mami)〔埼玉県〕
+
+08/27 小泉 隼人(Koizumi Hayato)〔埼玉県〕
+
+08/27 贺来 俊胤(Kaku Toshitsugu)〔熊本県〕
+
+08/27 吉川 慧(Yoshikawa Kei)〔埼玉県〕
+
+08/27 樋田 炎(Hida Honoho)〔东京都〕
+
+08/27 金光 祥浩(Kanemitsu Yoshihiro)〔大阪府〕（秘密蓓蕾：立花干生）
+
+08/27 小林 和矢(Kobayashi Kazuya)（旧名：宇宙人(Sorato)）〔东京都〕（樱兰高校公关部：左京智亲）
+
+08/27 神田 みか(Kanda Mika)（中译：神田美夏）（其他中译：神田美佳(错译)）（旧名：宫武みか）（本名：宫武美夏(Miyatake Mika)）〔千叶県〕（王之逆袭意志的继承者：德米娅）
+
+08/27 有村 美登里(Arimura Midori)（旧名：田中美登里(Tanaka Midori)/琴原未登里(Kotohara Midori)/タナカミドリ/田仲美登里）【非1963年11月12日神奈川出身者】〔京都府〕
+
+08/28 川濑 ゆう子(Kawase Yuuko)（旧名：川濑ゆうこ）〔滋贺県〕
+
+08/28 竹本 かすみ(Takemoto Kasumi)（参考中译：竹本香澄）〔长野県〕
+
+08/28 若樱 有理(Wakasa Yuri)（旧名：结崎有理(Yuzaki Yuri)）〔？？？〕
+
+08/28 比留间 俊哉(Shunya Hiruma)〔埼玉県〕（偶像梦幻祭：真白友也）
+
+08/28 菅原 慎介(Sugaura Shinsuke)〔茨城県〕（骑士&魔法：阿基德·奥尔塔）
+
+08/28 森川 真纱子(Morikawa Masako)〔爱媛県〕（追梦高手(2019)：萨尔瓦(吹替)）
+
+08/28 三日尻 望(Mikajiri Nozomi)〔东京都〕（Tropical-Rouge!光之美少女：罢工魔）
+
+08/28 木村 千咲(Kimura Chisa)〔兵库県〕（赛马娘Pretty Derby：大和赤骥(Daiwa Scarlet)）
+
+08/28 花井 なお(Hanai Nao)（中译：花井奈绪）（旧名：丰岛奈绪(Toyoshima Nao)）〔大阪府〕
+
+08/28 平山 ゆりか(Hirayama Yurika)（中译：平山夕梨夏）（旧名：夕梨夏(Yurika)）（其他中译(错译)：平山友梨香【非相同汉字写法同名同姓跳跃滑雪运动员】/平山友梨佳）〔福井県〕（BLUE REFLECTION RAY/澪：橘凉枫）
+
+08/28 小泉 知也(Koizumi Tomoya)〔北海道〕
+
+08/28 鸣濑 まみ(Naruse Mami)〔滋贺県〕
+
+08/28 滝沢 圣波(Takizawa Seiha)〔长野県〕
+
+08/29 吉野 贵大(Yoshino Takahiro)〔大阪府〕
+
+08/29 久保田 健介(Kubota Kensuke)〔北海道〕
+
+08/29 西梛 あやか(Nishina Ayaka)〔爱知県〕
+
+08/29 出原 匠(Izuhara Takumi)〔爱知県〕
+
+08/29 荒尾 友香理(Arao Yukari)〔北海道〕
+
+08/29 财城 里佳(Zaiki Rika)〔千叶県〕
+
+08/29 相泽 实奈(Aizawa Mima)〔神奈川県〕
+
+08/29 一众(Issyuu)（旧名：长濑一众(Nagase Issyuu)）〔京都府〕
+
+08/29 成泽 卓(Narisawa Suguru)〔北海道〕（国王游戏：井上浩文）
+
+08/29 いとう さとる(Itou Satoru)（参考中译：伊藤悟/伊藤聪）〔千叶県〕
+
+08/29 夏葵(Natsuki)（本名&旧名：松本夏葵(Matsumoto Natsuki)）〔兵库県〕
+
+08/30 野边 シュウ(Nonave Syu)（参考中译：野边秀）〔埼玉県〕
+
+08/30 山口 登(Yamaguchi Noboru)〔北海道〕（阴守忍者：Blue丸）
+
+08/30 荻野 叶月(Ogino Hazuki)〔富山県/神奈川県〕（美妙的步枪：冈幡睦）
+
+08/30 川名 敦子(Kamana Atsuko)〔千叶県〕
+
+08/30 山野 瞳(Yamano Hitomi)〔东京都〕
+
+08/30 松村 宏美(Matsumura Hiromi)〔群马県〕
+
+08/31 金田 爱(Kaneda Ai)〔茨城県〕（上载新生系列：爱丽莎(吹替)）
+
+08/31 中岛 裕美子(Nakajima Yumiko)〔千叶県〕（ef -- a tale of melodies.：雨宫优子）
+
+08/31 户板 优衣(Toita Yui)〔冈山県〕（Fate/Prototype 苍银的碎片：芳守铃埜(广播剧)）
+
+08/31 すずき けいこ(Suzuki Keiko)（参考中译：铃木惠子）〔大阪府〕（Little Busters!：三枝叶留佳&二木佳奈多）
+
+08/31 堀北 俊希(Horikita Toshiki)〔兵库県〕
+
+08/31 滨田 初(Hamada Hajime)〔兵库県〕
+
+08/31 宫田 千穗里(Miyata Chiori)〔茨城県〕
+
+08/31 贵堂 蓝(Kidou Ai)〔东京都〕
+
+08/31 增田 瑛子(Masuda Akiko)〔千叶県〕
+
+09/01 若林 彩子(Wakabayashi Ayako)〔东京都〕
+
+09/01 大本 裕(Oomoto Yu)〔兵库県〕
+
+09/01 川濑 飒马(Kawase Souma)〔茨城県〕
+
+09/01 中川 辉己(Nakagawa Teruki)〔？？？〕
+
+09/01 长门 三照(Nagato Mitsuteru)〔埼玉県〕
+
+09/01 鹿濑 ハジメ(Shikase Hajime)（参考中译：鹿濑初）〔兵库県〕
+
+09/01 川上 彩(Kawakami Aya)（本名&旧名：中岛彩(Nakashima Aya)）〔东京都〕（甲铁城的卡巴内利：小太郎）
+
+09/02 花桐 まき(Hanagiri Maki)（参考中译：花桐真纪）〔东京都〕
+
+09/02 竹尾 步美(Takeo Ayumi)〔三重県〕（NEW GAME!：饭岛结音）
+
+09/02 工藤 夕希(Kutou Yuuki)〔埼玉県〕（辣妹与恐龙：前辈）
+
+09/02 雨宫 侑布(Amamiya Yuu)〔神奈川県〕（恋姬无双：黄忠）
+
+09/02 ひなた たまり(Hinata Tamari)（参考中译：日向珠莉/日向玉里）〔千叶県〕
+
+09/02 高木 达也(Takagi Tatsuya)〔东京都〕（科学小飞侠Crowds Insight：岸田泰之）
+
+09/02 久下 知秋(Kuge Chiaki)〔大阪府〕
+
+09/02 吉川 彰乃(Yoshikawa Ayano)〔广岛県〕
+
+09/03 西川 实沙(Nishikawa Misa)〔静冈県〕
+
+09/03 小泉 濑奈(Koizumi Sena)〔爱知県〕
+
+09/03 岩田 陆(Iwata Riku)〔枥木県〕
+
+09/03 冈田 佐知惠(Okada Sachie)〔埼玉県〕
+
+09/03 秋山 谅(Akiyama Ryou)〔东京都〕
+
+09/03 外川 大花(Sotokawa Tomoka)〔北海道〕
+
+09/03 下川 凉(Shimokawa Ryou)〔熊本県〕
+
+09/03 小林 桂子(Kobayashi Keiko)〔新潟県〕（Lady 宝石宠物：Lady桃奈）
+
+09/03 青山 樱子(Aoyama Sakuarako)〔东京都〕（IDOL舞SHOW：八木香织）
+
+09/03 伊藤 りかこ(Itou Rikako)（旧名：伊藤梨果子(中译)/花宫枫(Hanamiya Kaede)）【非2000年2月16日东京都出身者】〔秋田県〕
+
+09/03 さくら なつみ(Sakura Natsumi)（参考中译：佐仓夏海）（旧名：藤田夏海(Fujita Natsumi)）〔广岛県〕
+
+09/04 松 圣花(Matsu Kiyoka)（旧名：松井圣花(Matsui Kiyoka)）〔大阪府〕（黄昏乙女×失忆症：西河日登美）
+
+09/04 武田 太一(Takeda Taichi)〔兵库県〕（日本沉没2020：大谷三郎）
+
+09/04 深川 史麻(Fukagawa Shima)〔东京都〕
+
+09/04 沼尾 幸作(Numao Kosaku)〔千叶県〕
+
+09/04 樱井 未来(Sakurai Miku)〔宫城県〕
+
+09/04 有贺 朔彦(Ariga Norihiko)〔神奈川県〕
+
+09/05 前川 绫香(Maekawa Ayaka)〔冲绳県〕
+
+09/05 西野 友利惠(Nishino Yurie)〔高知県〕
+
+09/05 前堂 友昭(Maedo Tomoaki)〔冲绳県〕
+
+09/05 吉开 友美(Yoshikai Tomomi)〔爱知県〕
+
+09/05 松下 真绪(Matsushita Mao)〔长崎県〕
+
+09/05 冲胡 玲奈(Okiebisu Reina)〔三重県〕
+
+09/05 武井 和步(Takei Kazuho)〔宫城県〕
+
+09/05 松尾 绘那(Matsuo Ena)〔千叶県〕（装神少女缠：草薙智香）
+
+09/06 池田 优希(Ikeda Yuuki)（旧名：池田裕希）〔长野県〕
+
+09/06 内田 慎二(Uchida Shinji)〔千叶県〕（游戏王GX：辛鲁巴）
+
+09/06 二阶堂 结(Nikaidou Yui)（旧名：二阶堂结友）〔神奈川県〕
+
+09/06 滨崎 奈奈(Hamasaki Nana)〔东京都〕（偶像大师：福田法子）
+
+09/06 矢野 正明(Yano Masaaki)〔大分県〕（听我的电波吧：中原忠也）
+
+09/06 树 冬华(Izuki Touka)（旧名：嘉多中いお(Katanaka Io)）〔埼玉県〕
+
+09/06 远野 沙树(Toono Saki)（旧名：畠山沙树(Hatakeyama Saki)）〔宫城県〕
+
+09/06 茜咲 凛(Akasaka Rin)（旧名：松本ふくみ(Matsumoto Fukumi)）〔大阪府〕
+
+09/06 斋藤 龙吾(Saitou Ryougo)（旧名：齐藤龙吾）〔东京都〕（薄樱鬼：雪村纲道）
+
+09/06 筱宫 あすか(Shinomiya Asuka)（参考中译：筱宫明日香）〔神奈川県〕（Xuccess Heaven：秋月可怜(游戏)）
+
+09/06 都月 彩枫(Tsuzuki Sayaka)〔东京都〕（联盟空军航空魔法音乐队光明魔女：埃莱奥诺尔·乔万娜·加雄(Eleonore Giovanna Gassion)）
+
+09/06 宝生 のり子(Hoshou Noriko)〔千叶県〕
+
+09/06 中川 由奈(Nakagawa Yuuna)〔京都府〕
+
+09/06 齐木 香(Saiki Kaori)〔千叶県〕
+
+09/06 大友 直人(Ootomo Naoto)〔埼玉県〕
+
+09/06 田坂 浩树(Tasaka Hiroki)〔北海道〕
+
+09/06 小山 真实(Koyama Masami)〔东京都〕
+
+09/07 紫苑 雪(Shion Yuki)〔兵库県〕
+
+09/07 谷下 由佳(Tanishita Yuka)〔福冈県〕
+
+09/07 竹内 若子(Takeuchi Wakako)〔大阪府〕
+
+09/07 大森 加奈女(Omori Kaname)〔冈山県〕
+
+09/07 坂东 贤春(Bandou Kenshun)〔爱知県〕
+
+09/07 花冈 志织(Hanaoka Shiori)〔茨城県〕（IDOLLS!：志织）
+
+09/07 岩崎 了(Iwasaki Ryou)〔兵库県〕（闪电十一人GO：锦龙马）
+
+09/07 赤司 よしか(Akashi Yoshika)（参考中译：赤司芳歌/赤司佳香）〔东京都〕
+
+09/07 五代 あつし(Godai Atsuhi)（中译：五代厚之）（旧名：村井厚之(Murai Atsuhi)）〔神奈川県〕
+
+09/08 渡部 俊树(Watanabe Toshiki)〔东京都〕（上载新生系列：内森·布劳恩(吹替)）
+
+09/08 广濑 龙一(Hirose Ryuuichi)〔千叶県〕（世界上最美丽的我的女儿(2019)：金宇真(吹替)）
+
+09/08 谷本 卓美(Tanimoto Takumi)〔岛根県〕
+
+09/08 入江 直树(Irie Naoki)〔兵库県〕
+
+09/08 神巳 蓝名(Kanmi Aina)〔埼玉県〕
+
+09/08 梅田 祥平(Umeda Shouhei)〔山口県〕
+
+09/09 上杉 华子(Uesugi Hanako)〔东京都〕
+
+09/09 三枝 五郎八(Saegusa Iroha)〔山口県〕
+
+09/09 小林 未苑(Kobayashi Misono)〔福冈県〕
+
+09/09 吉良 贤介(Kira Kensuke)〔奈良県〕
+
+09/09 本坊 谅太(Honbu Ryouta)〔鹿儿岛県〕
+
+09/09 佐佐木 启夫(Sasaki Hiroo)〔秋田県〕（RerideD-穿越时空的德理达-：维多·菲尔克）
+
+09/09 佳穗 成美(Kaho Narumi)〔广岛県〕（转生贵族靠着鉴定技能一飞冲天：夏洛特·雷伊斯）
+
+09/09 长谷川 瑜ら(Hasegawa Yura)（参考中译：长谷川瑜良/长谷川瑜罗）（本名&旧名：杉浦奈保子(Sugiura Naoko)）〔千叶県〕（凉宫春日的消失：日向咲叶）
+
+09/10 一杉 佳澄(Hitosugi Kasumi)〔静冈県〕（住宅区友夫：叶山赖子）
+
+09/10 织田 芙实(Oda Fumi)〔大阪府〕（穿越宇宙的少女：狮子堂珠玉）
+
+09/10 村岛 慎之介(Murashima Shinnosuke)〔京都府〕（number24：佐佐木通玄）
+
+09/10 大平 あひる(Oohira Ahiru)（中译：大平鹜）（旧名：大平遥香(Oohira Haruka)）〔千叶県〕
+
+09/10 清水 彩瑞(Shimizu Ami)〔静冈県〕
+
+09/10 三岛 巧(Mishima Takumi)〔东京都〕
+
+09/10 近藤 光世(Kondou Mitsuyo)〔大阪府〕
+
+09/10 宫地 晴(Miyachi Haru)〔兵库県〕
+
+09/10 高宫 千寻(Takamiya Chihiro)〔福冈県〕
+
+09/10 牟田 实波(Muda Minami)〔佐贺県〕
+
+09/10 龟中 理惠子(Kamenaka Rieko)〔福冈県〕
+
+09/11 河井 晴菜(Kawai Haruna)〔千叶県〕
+
+09/11 杉町 麻由子(Sugimachi Mayuko)〔埼玉県〕
+
+09/11 近藤 真衣(Koudou Mai)〔北海道〕
+
+09/11 小林 达也(Kobayashi Tatsuya)〔新潟県〕
+
+09/11 かわの りょうこ(Kawano Ryouko)〔茨城県〕
+
+09/11 村田 绫野(Murada Ayano)（旧名：叶みゆき）〔千叶県〕
+
+09/11 栗田 ひづる(Kurita Hizuru)（参考中译：栗田日津留）〔埼玉県〕
+
+09/11 新明 爱梨(Shinmei Mari)（旧名：新明茉璃/麻里美绮）〔神奈川県〕
+
+09/11 藤本 侑里(Fujimoto Yuri)〔千叶県〕（剧场版赛马娘Pretty Derby新时代之扉：森林宝穴）
+
+09/11 白濑 まゆ(Shirase Mayu)（中译：白濑麻由）（旧名：杉町麻由子(Sugimachi Mayuko)）〔埼玉県〕
+
+09/11 花岩 香奈(Hanaiawa Kana) （本名&旧名：小林可奈(Kobayashi Kana)）〔枥木県〕（RELEASE THE SPYCE：畠山洁爱）
+
+09/12 梅田 贵公美(Umeida Kikumi)〔广岛県〕（忍者乱太郎：任晓左右）
+
+09/12 新藤 みなみ(Shindou Minami)（参考中译：新藤美波/新藤南）〔兵库県〕
+
+09/12 岩渊 友纪(Iwabuchi Yuki)〔枥木県〕（Re:STAGE! Dream Days♪：伊津村静江）
+
+09/12 山田 奈都美(Yamada Natsumi)〔东京都〕（BORUTO -火影新世代-：伊豆野山葵）
+
+09/12 坂卷 亮侑(Sakamaki Ryousuke)（旧名：坂卷亮祐）〔埼玉県〕（拯救德尔托拉：利福）
+
+09/12 本居 真优(Motoori Mayu)〔神奈川県〕
+
+09/12 伊田 侑平(Ida Yuhei)〔京都府〕
+
+09/12 古贺 庆太(Koga Keita)〔东京都〕
+
+09/12 金谷 瞳(Kanaya Hitomi)〔京都府〕
+
+09/12 永峰 新(Nagamine Arata)〔石川県〕
+
+09/12 布目 贞雄(Nenome Sadao)〔爱知県〕
+
+09/12 今野 优月(Konno Yuzuki)〔东京都〕
+
+09/12 中臣 真菜(Nakaomi Mana)〔大阪府〕
+
+09/12 野牧 幸矢(Nomaki Kouya)〔长野県〕
+
+09/13 拓磨(Takuma)〔静冈県〕
+
+09/13 河野 裕(Kouno Yutaka)〔千叶県〕
+
+09/13 神取 庆次(Kandori Keiji〔爱知県〕
+
+09/13 江马 ゆかり(Ema Yukari)〔静冈県〕
+
+09/13 染谷 龙将(Someya Tatsumasa)〔东京都〕
+
+09/13 和久野 爱佳(Wakano Aika)〔爱知県〕
+
+09/13 夏目 妃菜(Natsume Hina)〔东京都〕（绊的Allele：萨拉）
+
+09/13 门间 理沙(Monma Risa)〔埼玉県〕（极上生徒会：永井永子）
+
+09/13 羽贺 圣(Haga Satoshi)〔福岛県〕（机魂末世录(TEXHNOLYZE)：栎士）
+
+09/13 山本 亚衣(Yamamoto Ai)〔京都府〕（太宗李芳远(2021)：元敬皇后(吹替)）
+
+09/13 齐藤 佳央里(Saitou Kaori)〔东京都〕（LOVE米-WE LOVE RICE-：咕噜子）
+
+09/13 上原 あかり(Uehara Akari)（参考中译：上原明里）〔东京都〕（信长老师的年幼妻子：斋藤归蝶）
+
+09/13 大黑 优美子(Daikoku Yumiko)（旧名：大黑优佳(Daikoku Yuuka)）〔埼玉県〕（金色琴弦：近卫十和子）
+
+09/14 田代 贺巳(Tashiro Yoshimi)（旧名：田代贺美）〔大阪府〕
+
+09/14 山本 留里佳(Yamamoto Rurika)〔大阪府〕（小魔女学园：菲涅兰）
+
+09/14 皆川 一毅(Minakawa Ikki)〔埼玉県〕
+
+09/14 小见山 未来(Komiyama Miku)〔静冈県〕
+
+09/14 栗田 エリナ(Kuita Erina)〔兵库県〕
+
+09/14 冷水 优果(Hiyamizu Yuka)〔爱知県〕
+
+09/14 武田 一成(Takeda Kazunari)〔爱知県〕
+
+09/15 葛原 诗织(Kuzuhara Shiori)〔爱媛県〕
+
+09/15 北岛 壮峻(Kitajima Takeyoshi)〔长野県〕
+
+09/15 西村 嘉(Nishimura Yoshimi)〔东京都〕
+
+09/15 本岛 恭介(Motoshima Kyousuke)〔鹿儿岛県〕
+
+09/15 麻生 まどか(Asou Madoka)〔埼玉県〕
+
+09/15 松木 伸仁(Matsuki Nobuhito)〔枥木県〕
+
+09/15 贝冢 珠美(Kaizuka Tamami)〔？？？〕
+
+09/15 川乃 璃子(Kawano Riko)〔神奈川県〕
+
+09/15 西尾 桃子(Nishio Momoko)〔兵库県〕
+
+09/15 はら あい(Hara Ai)（参考中译：原爱）〔冈山県〕
+
+09/15 木村 美佐(Kimura Misa)〔大分県〕（STRATOS4 ADVANCE：向日塔子）
+
+09/15 函馆 ロビン 侑希(Hakodate Robin Yuuki)（中译：函馆·罗宾·侑希）〔东京都〕
+
+09/15 田中 メイ(Tanaka Mei)（参考中译：田中芽衣）（旧名：田中庄子(Tanaka Shouko/Souko)）〔神奈川県〕（境界的彼方：神原秋人(幼年)）
+
+09/16 浦田 优(Urata Yuu)〔大阪府〕（奇幻儿童：亚基）
+
+09/16 井上 みゆ(Inoue Miyu)〔石川県〕（恋姬无双：孟获）
+
+09/16 井上 遥乃(Inoue Haruno)〔东京都〕（信长之枪：浅尾薰）
+
+09/16 かとう 有花(Katou Yuka)（参考中译：加藤有花）〔岐阜県〕
+
+09/16 服部 りのあ(Hattori Rinoa)（参考中译：服部梨乃亚）〔东京都〕
+
+09/16 西野 伶香(Nishino Reika)（旧名：永井怜香(Nagai Reika)）〔三重県〕
+
+09/16 水野 なみ(Mizuno Nami)（参考中译：水野奈美）（旧名：樱华春日(Ouka Kasuga)/田原なおみ(Tahara Naomi)）〔大阪府〕
+
+09/16 华山 あかり(Hanayama Akari)（参考中译：华山朱理）（旧名：高桥郁美(Takahashi Ikumi)/高桥イクミ/橘いくみ(Tachibana Ikumi)/华山アカリ）〔神奈川県〕
+
+09/16 坂井 爱实(Sakai Manami)〔北海道〕
+
+09/16 半田 空(Handa Hiro)〔秋田県〕
+
+09/16 门马 胜贵(Monma Katsuki)〔北海道〕
+
+09/16 五十岚 文奏(Igarashi Fumika)〔千叶県〕
+
+09/16 高桥 沙耶香(Takahashi Sayaka)〔茨城県〕
+
+09/16 铃木 南名子(Suzuki Nanako)〔东京都〕
+
+09/16 岩城 泰司(Iwaki Yasushi)〔冈山県〕
+
+09/17 中野 大志(Nakano Taishi)〔大阪府〕
+
+09/17 冈 哲也(Oka Tetsuya)〔京都府〕（Another：大庭）
+
+09/17 桐生 朱音(Kiryu Akane)〔东京都〕（人马少女的烦恼：紫乃）
+
+09/17 山本 瑞稀(Yamamoto Mizuki)〔德岛県〕（Lapis Re:LiGHTs：莉涅特(Lynette)）
+
+09/17 广濑 仁美(Hirose Hitomi)〔岛根県〕（みかにハラスメント：北川羽月(广播剧)）
+
+09/17 樱井 阳菜(Sakurai Hina)（本名&旧名：八十田阳菜(Yasoda Hina)）〔石川県〕（Link！Like！LoveLive!莲之空女学院校园偶像俱乐部：百生吟子）
+
+09/18 樱庭 有纱(Sakuraba Arisa)〔青森県〕（sin七大罪：第三罪愤怒撒旦）
+
+09/18 寺泽 百花(Terasawa Momoka)〔千叶県〕（柚木家的四兄弟。：柚木岳）
+
+09/18 松井 明知(Matsui Michi)〔埼玉県〕（王室教师海涅：阿黛尔·冯·古兰兹来赫）
+
+09/18 高桥 まゆこ(Takahashi Mayuko)（参考中译：高桥真由子）〔新潟県〕（神枪少女 -IL TEATRINO：普莉希拉）
+
+09/18 三岛 さや香(Mishima Sayaka)〔福岛県〕
+
+09/18 白石 真基(Shiraish Masaki)〔福冈県〕
+
+09/18 深月 れいの(Mitsuki Reino)〔神奈川県〕
+
+09/18 君岛 哲(Kimishima Tetsu)〔北海道〕
+
+09/18 对马 芳哲(Tsushima Yoshinori)〔枥木県〕
+
+09/19 北缨 裕纪(Kitao Yuuki)〔兵库県〕
+
+09/19 佐藤 骏(Satou Shun)〔长野県〕
+
+09/19 髙桥 贵城(Takahashi Takashiro)〔东京都〕
+
+09/19 关野 涉(Sekino Wataru)〔神奈川県〕
+
+09/19 住永 侑太(Suminaga Yuta)〔长崎県〕
+
+09/19 宫崎 沙菜(Miyazaki Sana)〔大阪府〕
+
+09/19 井料 爱良(Iryou Aira)〔东京都〕
+
+09/19 秋元 うらら(Akimoto Urara)（参考中译：秋元丽）〔静冈県〕
+
+09/19 绫野 はる(Ayano Haru)（旧名：山田あやの(Yamada Ayano)）〔群马県〕
+
+09/19 矢野 智也(Yano Tomoya)（本名&旧名：高桥智也(Takahashi Tomoya)）〔神奈川県〕（人马少女的烦恼：猫见丰）
+
+09/19 本田 真菜实(Honda Manami)（旧名：本田爱美）（别名：奥宫みのり(Okumiya Minori)）〔埼玉県〕（未来日记：姆鲁姆鲁）
+
+09/20 阿部 里果(Abe Rika)〔三重県〕（FRAME ARMS GIRL：大鹫）
+
+09/20 田中 奏多(Tanaka Kanada)（旧名：松江佑依(Matsue Yui)）〔东京都〕
+
+09/20 狩野 つぐみ(Kanou Tsugumi)（参考中译：狩野鸫/狩野亚美）〔爱知県〕
+
+09/20 水野 まりえ(Mizuno Marie)（旧名&中译：水野麻里绘）〔东京都〕（未来卡搭档对战：未门牙王）
+
+09/20 赤马 せんり(Akama Senri)（中译：赤马千里）（旧名：矢野麻理子(Yano Mariko)/矢野理香(Yano Rika)）〔福冈県〕
+
+09/20 丸山 ゆう(Maruyama Yuu)（中译：丸山优）（旧名：丸山优子(Maruyama Yuko)）【非1969年出生同名者】〔东京都〕
+
+09/20 二木 静美(Niki Shizumi)〔长野県〕
+
+09/20 酒井 圣也(Sakai Masaya)〔神奈川県〕
+
+09/20 佐藤 宗(Satou Hajime)〔山形県〕
+
+09/20 合田 明日佳(Gouda Asuka)〔香川県〕
+
+09/20 福田 典子(Fukuda Noriko)〔？？？〕
+
+09/20 松江 佑依(Matsue Yui)〔东京都〕
+
+09/20 佐佐木 贵久(Sasaki Takahisa)〔爱媛県〕
+
+09/20 粕谷 大介(Kasuya Daisuke)〔东京都〕
+
+09/21 こんの ゆり(Konno Yuri)〔岩手県〕
+
+09/21 吉田 丈一郎(Yoshida Joichirou)〔福岛県〕
+
+09/21 春木 宏水(Haruki Hiromi)〔福冈県〕
+
+09/21 高野 宗弥(Takano Soya)〔大阪府〕
+
+09/21 松平 美波穗(Matsudaira Minaho)〔东京都〕
+
+09/21 东海林 亚祐(Shouuji Ayu)〔兵库県〕
+
+09/21 青岛 れな(Aoshima Rena)（参考中译：青岛玲奈）〔静冈県〕
+
+09/21 西胁 保(Nishiwaki Tamotsu)〔大阪府〕（风之圣痕：结城慎吾）
+
+09/21 黑川 万由美(Kurokawa Mayumi)〔福井県〕（夏色奇迹：美夕）
+
+09/21 乙岛 さやか(Otosima Sayaka)（本名&旧名：森崎さやか(Morisaki Sayaka)）〔兵库県〕
+
+09/22 松岛 昭浩(Matsushima Akihiro)〔神奈川県〕（BNA：矢场广务）
+
+09/22 户张 枫音(Tobari Kanon)（旧名：户张美里(Tobari Miasato)）〔埼玉県〕
+
+09/22 熊野 まつり(Kumano Matsuri)（参考中译：熊野茉莉/熊野祭）〔兵库県〕
+
+09/22 西谷 亮(Nishitani Ryou)〔大阪府〕（BORUTO -火影新世代-：梅塔尔·李）
+
+09/22 じゅんぺい(Junpei)（中译：纯平）（本名&旧名：土屋纯平(Tsuchiya Junpei)）〔东京都〕
+
+09/22 村上 和也(Murakami Kazuya)〔东京都〕（Code：Realize～创世的姬君～：夏洛克·福尔摩斯）
+
+09/22 御手洗 かりん(Mitarai Karin)（参考中译：御手洗果林/御手洗花梨）〔大阪府〕（碧蓝航线：蛟）
+
+09/22 优木 咲妃(Yuuki Saki)〔大阪府〕
+
+09/22 早坂 智子(Hayasaka Tmoko)〔神奈川県〕
+
+09/22 大薮 惠介(Ooyabu Keisuke)〔东京都〕
+
+09/22 松岛 昭浩(Matsushima Akihiro)〔神奈川県〕
+
+09/22 海东 大勇(Kaitou Daiyuu)〔宫崎県〕
+
+09/23 平本 雄(Hiramoto Yuu)〔东京都〕
+
+09/23 真水 德一(Shimizu Norikazu)〔神奈川県〕
+
+09/23 土居 通聪(Doi Michitoshi)〔三重県〕
+
+09/23 折户 科美(Orito Shinami)〔北海道〕
+
+09/23 朝日奈 优(Asahina Yuu)（旧名：井上优(Inoue Yuu)）〔广岛県〕
+
+09/23 辰守 伶郎(Tatsumori Reo)（旧名：中西伶郎(Nakanishi Reo)）（配偶：福原绫香）〔大阪府〕
+
+09/24 上住谷 崇(Uezumiya Takashi)〔广岛県〕（ALL OUT!!：真子丰）
+
+09/24 平山 笑美(Hirayama Emi)〔东京都〕（熊猫肥肥：TAPUTAPU）
+
+09/24 北原 美和(Kitahara Miwa)〔长野県〕（忍者服部君(2012版)：三叶健一的妈妈）
+
+09/24 宫木 南美(Miyaki Nami)〔兵库県〕（卡片战斗先导者新右卫门篇：五之实奈奈美）
+
+09/24 樱庭 裕士(Sakuraba Yuuji)〔宫城県〕
+
+09/24 关口 雄吾(Sekiguchi Yugo)〔青森県〕
+
+09/25 尾崎 文(Ozaki Aya)〔三重県〕
+
+09/25 宫本 一志(Miyamoto Kazushi)〔福井県〕
+
+09/25 久保田 翔一(Kubota Shouichi)〔神奈川県〕
+
+09/25 河上 明日香(Kawakami Asuka)〔广岛県〕
+
+09/25 后藤 祐希(Gotou Yuuki)〔大分県〕
+
+09/25 樫野 凪(Kashino Nagi)〔宫城県〕
+
+09/25 尾川 枫(Ogawa Kaede)〔熊本県〕
+
+09/25 木花 蓝(Koba Ran)（本名：木庭蓝）〔中国上海〕
+
+09/25 松岛 润(Matsushima Jun)（旧名：松岛淳）〔东京都〕
+
+09/25 洼田 亮(Kuboda Ryou)〔神奈川県〕（游戏王GX：神田次男）
+
+09/25 田村 圣子(Tamura Seiko)〔东京都〕（CAROLE & TUESDAY：凯瑟琳）
+
+09/25 渡部 纱弓(Watabe Sayumi)〔北海道〕（BUILD DIVIDE -#000000-/BUILD DIVIDE -#FFFFFF-：晩华樱良）
+
+09/26 加藤 雅美(Katou Masami)〔群马県〕（恋姬无双：袁绍）
+
+09/26 梶田 大嗣(Kajita Daishi)〔广岛県〕（仙魔大战(2023版)：大和）
+
+09/26 宗像 奈绪(Munakata Nao)（旧名：栋方ナオ(Munakata Nao)）〔东京都〕
+
+09/26 福积 沙耶(Fukuzumi Saya)〔爱知県〕（WIXOSS DIVA(A)LIVE：明日平和）
+
+09/26 古屋 家臣(Furuya Kashin)〔静冈県〕
+
+09/26 楠户 康弘(Kusudo Yasuhiro)〔冈山県〕
+
+09/26 和田 祐子(Wada Yuko)〔宫崎県〕
+
+09/26 奥畑 幸典(Okuhata Yukinori)〔德岛県〕
+
+09/27 岛田 陵平(Shimada Ryouhei)〔埼玉県〕
+
+09/27 矢岛 友和(Yajima Tomokazu)〔群马県〕
+
+09/27 黑木 绅太郎(Korogi Shintairou)〔岛根県〕
+
+09/27 小林 聪(Kobayashi Satoshi)〔兵库県〕
+
+09/27 北村 大(Kitamura Dai)〔栃木県〕
+
+09/27 小场 玲奈(Koba Rena)〔神奈川県〕
+
+09/27 冈 辰青(Oka Tassei)〔静冈県〕
+
+09/27 阿部 道子(Abe Michiko)〔北海道〕
+
+09/27 板垣 优稀(Itagaki Yuuki)〔新潟県〕（奇喵的画家：毕加索）
+
+09/27 叶山 达也(Hayama Tetsuya)〔加拿大〕（南家三姐妹：南秋罗）
+
+09/27 前田 あやの(Maeda Ayano)（旧名&中译：前田绫乃）〔大阪府〕
+
+09/27 常盘 昌平(Tokiwa Shoupei)〔神奈川県〕（人气温泉『异世界温泉』开拓记 ～40岁左右的温泉爱好者转世到了悠闲的温泉天堂～：汤川好藏）
+
+09/28 いのこざ ゆき(Inokoza Yuki)（参考中译：豚座雪）〔兵库県〕
+
+09/28 えんどう さや(Endou Saya)（参考中译：远藤沙耶）〔埼玉県〕
+
+09/28 藤村 花音(Fujimura Kanon)〔香川県〕（名侦探柯南犯人犯泽先生：奈奈）
+
+09/28 吉野 光成(Yoshino Mitsunari)〔埼玉県〕
+
+09/28 わたなべ よしき(Watanabe Yoshiki)〔东京都〕
+
+09/28 里 郁美(Sato Ikumi)〔大阪府〕
+
+09/28 猪野 穗乃香(Ino Honoka)〔熊本県〕
+
+09/28 高岛 佑典(Takashima Yuusuke)〔神奈川県〕
+
+09/28 虾名 彩香(Ebina Ayaka)〔千叶県〕
+
+09/28 冈本 光右(Okamoto Kosuke)〔大阪府〕
+
+09/29 汤本 健一(Yumoto Kenichi)〔茨城県〕
+
+09/29 苏武 健治(Sobu Kenji)〔神奈川県〕
+
+09/29 濑川 惠理(Segawa Eri)〔神奈川県〕
+
+09/29 星 由华(Hoshi Yuka)〔长崎県〕
+
+09/29 绫宫 由希子(Ayamiya Yukiko)〔福岛県〕（碧蓝幻想：亚马逊）
+
+09/29 渡边 理沙(Watanabe Risa)〔宫城県〕（世界上最美丽的我的女儿(2019)：姜美惠(吹替)）
+
+09/30 花宫 ゆりこ(Hanamiya Yuriko)（参考中译：花宫百合子）〔佐贺県〕
+
+09/30 镰仓 有那(Kamakura Yuuna)〔东京都〕（人马少女的烦恼：御魂真奈美）
+
+09/30 饭隈 のどか(Iikuma Nodoka)（参考中译：饭隈和/饭隈长闲/饭隈和香）〔埼玉県〕
+
+09/30 熊谷 海丽(Kumagai Mirei)（配偶：樱井トオル）〔静冈県〕（夫妻的世界(2020)：吕多景(吹替)）
+
+09/30 谷岛 骏温(Yajima Toshiharu)〔东京都〕
+
+09/30 百富 芽衣(Hyakudomi Mei)〔山口県〕
+
+09/30 藤田 しずく(Fujita Shizuku)〔静冈県〕
+
+09/30 小野 雄哉(Ono Yuuya)〔茨城県〕
+
+09/30 原口 祥子(Haraguchi Shouko)〔岐阜県〕
+
+09/30 指宿 真斗(Ibusuki Manato)〔鹿儿岛県〕
+
+09/30 宇佐美 凉子(Usami Ryouko)〔东京都〕
+
+09/30 桥本 昌也(Hashimoto Masaya)〔神奈川県〕
+
+09/30 吉森 未沙希(Yoshimori Misaki)〔福冈県〕
+
+09/30 初村 健矢(Hatsumura Kenya)〔长崎県〕
+
+10/01 安东 广记(Andou Hiroki)〔大阪府〕
+
+10/01 关 泰二(Seki Taiji)〔广岛県〕
+
+10/01 小川 海斗(Ogawa Kaito)〔东京都〕
+
+10/01 梁 纯夏(Ryou Sumika)〔福冈県〕
+
+10/01 谷井 智江(Tanii Tomoe)〔？？？〕
+
+10/01 高杉 义充(Takasugi Yoshimitsu)〔东京都〕
+
+10/01 三轮 拓也(Miwa Takuya)〔神奈川県〕
+
+10/01 寺门 真希(Terakado Maki)〔千叶県〕（尸鬼：村迫智寿子）
+
+10/01 森山 里来(Moriyama Riku)〔埼玉県〕（D.C初音岛：朝仓音梦）
+
+10/01 このや 朗(Konoya Akira)（旧名&中译：小埜哉朗(Konoya Akira)）〔神奈川県〕
+
+10/01 桃河 りか(Momokawa Rika)（参考中译：桃河里香）〔冈山県〕（黄昏旅馆：冢原音子）
+
+10/01 のだ まみ(Noda Mami)（旧名：野田麻未(本名&中译)/野田麻由美(Noda Mayumi)）〔熊本県〕
+
+10/01 福纯 宽子(Fukuzumi Hiroko)（旧名：水仓久美子(Mizukura Kumiko)）（本名：数野尊子(Kazuno Takako)）〔东京都〕
+
+10/01 逢泽 ゆりか(Aizawa Yurika)（参考中译：逢泽由利香/逢泽百合香）（旧名：あいざわゆりか）〔埼玉県〕（金田一少年事件簿R：海堂瞳）
+
+10/02 风间 万裕子(Kazama Mayuko)〔东京都〕（憧憬成为魔法少女：水神小夜/魔法碧蓝）
+
+10/02 柳泽 健次(Yanagisawa Kenji )〔群马県〕
+
+10/02 内山 由贵(Uchiyama Yuki)〔千叶県〕
+
+10/02 大平 泉(Oodaira Izumi)〔神奈川県〕
+
+10/02 滨口 翔一(Hamaguchi Shouichi)〔三重県〕
+
+10/02 竹谷 和树(Taketani Kazuki)〔东京都〕
+
+10/02 小林 秀行(Kobayashi Hideaki)〔东京都〕
+
+10/02 东 恭平(Azuma Kyouhei)〔岛根県〕
+
+10/02 古田 一晟(Furuta Issei)〔东京都〕
+
+10/03 小川 绫子(Kogawa Ayako)〔埼玉県〕
+
+10/03 鲇泽 佑步伐(Ayuzawa Yuuho)〔山梨県〕
+
+10/03 エナポゥ(Enapou)〔东京都〕
+
+10/03 渡边 晃(Watanabe Akira)〔东京都〕
+
+10/03 星野 健一(Hoshino Kenichi)〔茨城県〕
+
+10/03 山口 绘(Yamaguchi Kai)〔埼玉県〕
+
+10/03 饭野 ユウ(Iino Yuu)〔东京都〕
+
+10/03 青野 早惠(Aono Sae)〔大阪府〕
+
+10/03 高桥 咲贵(Takahashi Saki)〔埼玉県〕
+
+10/03 中隈 志保(Nakakuma Shiho)〔福冈県〕（尸鬼：安森进）
+
+10/03 绫濑 有(Ayase Yuu)〔宫崎県〕（Frame Arms Girl：短剑娘）
+
+10/03 伊藤 ちゆり(Itou Chiyuri)（参考中译：伊藤千由里）〔北海道〕
+
+10/03 白石 ゆきね(Shiraishi Yukine)（参考中译：白石雪音）〔埼玉県〕
+
+10/03 丸山 有香(Maruyama Yuka)〔东京都〕（高校舰队：松永理都子）
+
+10/03 志田 有彩(Shida Arisa)〔神奈川県〕（小魔女学园：阿曼达·奥尼尔）
+
+10/03 大竹 みゆ(Ootake Miyu)（旧名：大竹裕子(Ootake Hiroko)）〔神奈川県〕（忍者少女：月夜姬）
+
+10/03 秋河 あゆむ(Akikawa Ayumu)（参考中译：秋河步）〔东京都〕（发条精灵战记天镜的极北之星：苏雅·米特卡利夫）
+
+10/04 吉咲 みゆ(Yoshizaki Miyu)（参考中译：吉咲美优）〔埼玉県〕
+
+10/04 吉田 美穗(Yoshida Miho)〔宫城県〕（玻璃假面：水无月沙耶香）
+
+10/04 星 光明(Hoshi Mitsuaki)〔东京都〕（さかあがりハリケーン ：绮罗泰德）
+
+10/04 樱井 ありす(Sakurai Arisu)（中译：樱井有栖）（别名：水邑琴音）〔兵库県〕
+
+10/04 津野 しの(Tsuno Shino)（参考中译：津野志乃）（母：津野まさい）〔千叶県〕
+
+10/04 山本 格(Yamamoto Itaru)〔新潟県〕（关于我转生变成史莱姆这档事：贝尔亚德）
+
+10/04 深谷 悠(Fukaya Yu)〔茨城県〕
+
+10/04 大中 宽子(Ohnaka Hiroko)〔东京都〕
+
+10/04 小林 志保(Kobayashi Shiho)〔青森県〕
+
+10/04 根本 菜都美(Nemoto Natsumi)〔茨城県〕
+
+10/05 榎谷 早耶香(Enokidani Sayaka)〔兵库県〕
+
+10/05 古贺 阳菜(Koga Haruna)〔佐贺県〕
+
+10/05 滨口 慎太郎(Hamaguchi Shintarou)〔广岛県〕
+
+10/05 一ノ濑 雅彦(Ichinose Masahiko)（中译：一之濑雅彦）〔千叶県〕
+
+10/05 大海 将一郎(Oomi Shouichirou)〔东京都〕（Fustal Boys!!!!!：橘藤吾）
+
+10/05 赤地 红河(Akachi Kouga)（旧名：赤地翔吾(Akachi Shougo)）〔千叶県〕
+
+10/05 打田 マサシ(Uchida Masashi)（参考中译：打田雅史/打田正志/打田政志）〔三重県〕（国王游戏：古泽翼）
+
+10/05 八卷 アンナ(Ymaki Anna)（参考中译：八卷安娜/八卷安奈）〔鸟取県〕（美妙的步枪：五十岚雪绪）
+
+10/05 关根 明子(Sekine Akiko)（配偶：柴田秀胜）（本名：柴田明子(Shibata Akiko)）〔东京都〕（苍之传说足球风云：平松静子）
+
+10/05 穗ノ歌 そら(Honoka Sora)（参考中译：穗之歌空）（旧名：中村友美(Nakamura Yumi)）〔东京都〕（Witch Hunter ROBIN：水谷久美）
+
+10/05 手冢 ヒロミチ(Tezuka Hiromichi)（中译：手冢宏通）（其他中译：手冢弘道(错译)）（本名&旧名：延岛宏通(Nobushima Hiromichi)）〔茨城県〕（伊甸星原：彗智·修泰那）
+
+10/06 折居 里砂(Orii Risa)（旧名：斋藤里砂(Saitou Risa)/柊里砂(Hiragi Risa)）〔埼玉県〕
+
+10/06 青柳 みさと(Aoyanagi Misato)（参考中译：青柳美里）〔神奈川県〕（职业选手lady：莫可莫可）
+
+10/06 下田 岭易(Shimoda Rei)（旧名：下田レイ）〔埼玉県〕（玩家百科/Gamer's Guide to Pretty Much Everything(2015)：科娜(吹替)）
+
+10/06 新田 绫香(Nitta Ayaka)〔千叶県〕
+
+10/06 青山 哲志(Aoyana Tetsushi)〔千叶県〕
+
+10/06 兼岩 玲志(Kaneiwa Reiji)〔爱知県〕
+
+10/06 盐川 长香(Shiokawa Nodoka)〔神奈川県〕
+
+10/06 中江 恭子(Nakae Yasuko)〔鸟取県〕
+
+10/06 小池 万瑠美(Koike Marumi)〔静冈県〕
+
+10/06 山本 タケル(Yamamoto Takeru)〔东京都〕
+
+10/06 丸田 光(Maruta Hikaru)〔长野県〕
+
+10/07 吉田 拓真(Yoshida Takuma)〔冲绳県〕
+
+10/07 松井 一宪(Matsui Kazunori)〔神奈川県〕
+
+10/07 斋藤 响(Saitou Hibiki)〔神奈川県〕
+
+10/07 高田 より子(Takada Yoriko)〔爱媛県〕
+
+10/07 渡边 育子(Watanabe Ikuko)〔神奈川県〕
+
+10/07 冈田 悠(Okata Yuu)（旧名：冈雄太(Oka Yuuta)）〔兵库県〕
+
+10/07 三浦 冴子(Miura Saeko)〔山梨県〕（女王制造者(2023)：黄道熙(吹替)）
+
+10/07 大村 歌奈(Oomura Kana)（本名&旧名：大村香奈子(Omura Kanako)）〔兵库県〕（异世界的圣机师物语：莉琪亚·波·契那）
+
+10/08 野引 香里(Nobiki Kaori)〔鸟取県〕（ef a tale of melodies ：泉绘美）
+
+10/08 藤木 雄太(Fujiki Yuuta)（旧名：藤本雄大(Fujimoto Yuuta)）〔千叶県〕
+
+10/08 松原 雅子(Matsubara Masako)〔东京都〕（哆啦A梦：静香之母(第二代)）
+
+10/08 森高 さとし(Moritaka Satoshi)（参考中译：森高聪/森高智/森高悟）〔东京都〕
+
+10/08 大泽 つむぎ(Ohsawa Tsumugi)（参考中译：大泽紬）（本名：森北つむぎ(Morikita Tsumugi)）〔福冈県〕
+
+10/08 冈井 カツノリ(Okai Katsunori)（旧名&中译：冈井克升）〔兵库県〕（ALL OUT!!：吉备将太）
+
+10/08 宫中 はるか(Miyanaka Haruka)〔东京都〕
+
+10/08 仁古 泰(Niko Yasushi)〔宫崎県〕
+
+10/08 奈酉 秋吾(Natori Shugo)〔神奈川県〕
+
+10/08 奥江 明生(Okue Akio)〔鹿儿岛県〕
+
+10/08 神谷 怜美(Kamiya Reimi)〔冲绳県〕
+
+10/08 小畑 穗奈美(Obata Honami)〔滋贺県〕
+
+10/08 藤卷 大悟(Fujimaki Daigo)〔东京都〕
+
+10/08 高田 奈央美(Takada Naomi)〔东京都〕
+
+10/08 铃木 祥太郎(Suzuki Shotarou)〔东京都〕
+
+10/09 高泽 柚衣(Takazawa Yui)〔埼玉県〕
+
+10/09 稻垣 美和子(Inagaki Miwako)〔岐阜県〕
+
+10/09 平松 优(Hiramatsu Masaru)〔爱知県〕
+
+10/09 山本 彰子(Yamamoto Shouko)〔宫崎県〕
+
+10/09 高井 うらら(Takai Urara)（参考中译：高井丽）〔京都府〕
+
+10/09 富田 贵洋(Tomida Takahiro)〔神奈川県〕（电器街的漫画店：调酒师）
+
+10/09 神木 孝一(Kamiki Kouichi)〔长崎県〕（Muv-Luv Alternative：白银武）
+
+10/09 一色 みく(Isshiki Miku)（参考中译：一色未来）〔爱媛県〕（紧扣的星星：齐藤亚绫）
+
+10/10 本村 玲奈(Motomura Rena)〔大阪府〕（前桥魔女：北原京香）
+
+10/10 夏目 响平(Natsume Kyouhei)〔茨城県〕（偶像大师闪耀色彩：制作人）
+
+10/10 中村 光树(Nakamura Mitsuki)〔福井県〕（游戏王SEVENS：田崎伽梨庵）
+
+10/10 上田 真纱子(Ueda Masako)〔广岛県〕（小小安妮系列/Anne with an E：安妮·夏利(吹替)）
+
+10/10 片桐 健太(Katagiri Kenta)〔埼玉県〕
+
+10/10 广田 悠美(Hirota Yuumi)〔青森県〕
+
+10/10 熊谷 彩(Kumagai Aya)〔东京都〕
+
+10/10 芹泽 里樱(Serizawa Rio)〔东京都〕
+
+10/11 佐佐木 香织(Sasaki Kaori)〔爱知県〕
+
+10/11 冈本 未来(Okamoto Mirai)〔神奈川県〕
+
+10/11 福岛 菜七子(Fukushima Nanako)〔埼玉県〕
+
+10/11 冈本 堂玄(Okamoto Dogen)〔爱知県〕
+
+10/11 松村 百惠(Matsumura Momoe)〔爱知県〕
+
+10/11 寺谷 美香(Teratani Mika)〔兵库県〕（心灵侦探八云：丰子）
+
+10/11 结城 光(Yuki Hikaru)（本名&旧名：康本光(Yasumoto Hikaru)）〔大阪府〕（奴隶区：涩谷幸）
+
+10/12 由野 ロビン(Yoshino Robin)（中译：由野罗宾）〔东京都〕
+
+10/12 高田 みほ(Takata Miho)（参考中译：高田美穗）〔东京都〕
+
+10/12 安藤 ゆりあ(Andou Yuria)（参考中译：安藤由梨亚）〔埼玉県〕
+
+10/12 下川 草介(Shimokawa Sousuke)〔东京都〕（Fustal Boys!!!!!：世良龙太朗）
+
+10/12 冈田 めぐみ(Okada Megumi)【非1月20日爱知县出身姓名同音者】〔山形県〕
+
+10/12 柴田 あいばん(Shibata Ivan)（中译：柴田伊凡）（其他中译：柴田爱晚/柴田爱坂/柴田相番(错译)）〔菲律宾马尼拉〕
+
+10/12 松泽 幸(Matsuzawa Yuki)（旧名：茉雪ちづる(Matsuyuki Chizuru) /茉雪千鹤）〔东京都〕（星星公主：玉依美园）
+
+10/12 松川 贵弘(Matsukawa Takahiro)〔福冈県〕
+
+10/12 箱崎 翔(Hakozaki Kakeru)〔福岛県〕
+
+10/12 伊智 生士治(Ichi Fujiya)〔爱知県〕
+
+10/12 关户 博一(Sekido Hirokazu)〔神奈川県〕
+
+10/13 远藤 圭一郎(Endou Keiichirou)〔？？？〕
+
+10/13 三浦 小季(Miura Saki)〔北海道〕
+
+10/13 清水 秀光(Shimizu Hademizu)〔群马県〕
+
+10/13 曾田 鹰人(Soda Takahito)〔埼玉県〕
+
+10/13 吉田 实希(Yoshida Miki)〔大阪府〕
+
+10/13 荻泽 俊彦(Ogisawa Toshihiko)〔青森県〕
+
+10/13 中西 由(Nakanishi Yuu)〔京都府〕
+
+10/13 星 爱美(Hoshi Aimi)（旧名：保志亚衣美）〔东京都〕
+
+10/13 胁本 和惠(Wakimoto Kazue)（旧名&别名：有坂绫世(Arisaka Ayase)）〔神奈川県〕
+
+10/14 江原 诗织(Ebara Shiori)〔群马県〕（鬼太郎：卡罗琳）
+
+10/14 祖山 桃子(Soyama Momoko)〔埼玉県〕（Z/X Code reunion：伊娜）
+
+10/14 佐藤 悠雅(Satou Yuuga)〔山形県〕（古见同学有交流障碍。：园田大势）
+
+10/14 水上 亚纱美(Mikzukami Asami)〔神奈川県〕（WIXOSS DIVA(A)LIVE：BIG BUNG(BUNG)）
+
+10/14 城户 まどか(Kido Madoka)（参考中译：城户园香）（本名&旧名：野村まどか(Nomura Madoka)）〔奈良県〕
+
+10/14 莳田 佳保里(Makita Kaori)〔福冈県〕
+
+10/14 神乐 雅(Kagura Miyabi)〔滋贺県〕
+
+10/14 君成田 晃佑(Kiminarita Kousuke)〔岩手県〕
+
+10/15 竹垣 绫香(Takegaki Ayaka)〔兵库県〕
+
+10/15 阪田 伊都(Sakata Ito)〔千叶県〕
+
+10/15 碓冰 刚史(Usui Takeshi)〔富山県〕
+
+10/15 永井 ちひろ(Nagai Chihiro)〔千叶県〕
+
+10/15 十河 圭祐(Sogou Keisuke)〔香川県〕
+
+10/15 花田 茜(Hanada Akane)〔大阪府〕
+
+10/15 菅家 麻梨子(Kanke Mariko)〔埼玉県〕
+
+10/15 吉竹 范子(Yoshitake Noriko)〔兵库県〕（钟之音学院：春乃亚理纱）
+
+10/15 かつやま まさみ(Katsuyama Masami)（参考中译：胜山雅美）〔神奈川県〕
+
+10/15 立石 めぐみ(Tateishi Megumi)（参考中译：立石惠）〔福冈県〕（环战公主：饭田霞）
+
+10/15 舞原 ゆめ(Maihara Yume)（参考中译：舞原梦）（旧名：大和舞子(Yamato Maiko)）〔千叶県〕
+
+10/15 栗坂 南美(Kurisaka Minami)〔千叶県〕（被称为废物原英雄被家里流放后随心所欲活下去：丽兹）
+
+10/15 前田 このみ(Maeda Konomi)（参考中译：前田好美）〔兵库県〕（墓场鬼太郎(第4作)：村上祐子）
+
+10/16 宫崎 纶(Miyazaki Rin)〔京都府〕
+
+10/16 小河原 かずこ(Ogahara Kazuko)（旧名&中译：小河原和子）〔大阪府〕
+
+10/16 矢崎 あいる(Yazaki Airu)（参考中译：矢崎亚衣留/矢崎爱瑠）〔茨城県〕
+
+10/16 木村 茧(Kimura Mayu)〔北海道〕（TERRAFORMARS REVENGE：春风樱人）
+
+10/16 南山 裕希(Naniyam Yuki)〔枥木県〕
+
+10/16 宇津宫 千穗(Utsumiya Chiho)〔千叶県〕
+
+10/16 八户 优(Hachinohe Masaru)〔青森県〕
+
+10/16 中村 美怜(Nakamura Misato)〔千叶県〕
+
+10/16 德石 胜大(Tokuishi Katsuhiro)〔鹿儿岛県〕
+
+10/16 长谷川 唯(Hasegawa Yui)〔神奈川県〕
+
+10/16 松本 大督(Matsumoto Daisuke)〔京都府〕
+
+10/16 佐藤 里绪(Satou Rio)〔滋贺県〕
+
+10/16 寺井 大树(Terai Daiki)〔东京都〕
+
+10/16 高桥 雏子(Takahashi Hinako)〔广岛県〕
+
+10/17 佐田 直启(Sada Naohiro)〔山口県〕
+
+10/17 幸地 真作(Kouchi Shisaku)〔冲绳県〕
+
+10/17 青井 葱(Aoi Negi)〔东京都〕
+
+10/17 藤崎 圣(Fujisaki Hijiri)〔京都府〕
+
+10/17 岩泽 俊树(Iwasaka Toshiki)〔东京都〕（剑王朝：陈监首）
+
+10/17 真中 桂子(Manaka Keiko)（旧名：中岛桂子(Nakashima Keiko)）〔长崎県〕（笨蛋测试召唤兽：三上美子）
+
+10/17 萱间 圆佳(Kayama Madoka)（旧名：横山圆香(Yokoyama Madoka)）〔福岛県〕
+
+10/17 曾和 まどか(Sowa Madoka)（参考中译：曾和圆）〔东京都〕（宫河家的空腹：内海雪奈）
+
+10/17 津川 祝子(Tsugawa Shukuko)〔东京都〕（逆转裁判～对这个"真实"，有异议！～：绫里纪美子）
+
+10/17 伊南 羽樱(Inami Hana) 〔东京都〕（脱离了A级队伍的我，和从前的徒弟们前往迷宫深处。：玛莉娜）
+
+10/18 山胁 〆纪(Yamawaki Chomenori)〔东京都〕（偶像宣言：月岛天）
+
+10/18 杉崎 りょうこ(Sugizaki Ryouko)（旧名&中译：杉崎绫子）〔神奈川県〕
+
+10/18 八剑 すみれ(Yatsurugi Sumire)（中译：八剑堇）〔千叶県〕（少女前线：FF FNC）
+
+10/18 高槻 莉那(Takatsuki Rina)〔岐阜県〕（Colorful·Pastrale ～from Bermuda△：反复(柯达)）
+
+10/18 结城 あくつ(Yuuki Akutsu)（中译：结城阿久津）（旧名：阿久津祐希(Akutsu Yuuki)）〔千叶県〕
+
+10/18 铃木 咲(Suzuki Saki)〔千叶県〕
+
+10/18 林 勇希(Hayashi Yuki)〔？？？〕
+
+10/18 生草 东子(Igusa Touko)〔埼玉県〕
+
+10/18 近卫 秀马(Konoe Shouma)〔东京都〕
+
+10/18 尾上 翔(Onoue Tsubasa)〔长崎県〕
+
+10/19 古田 裕一(Furuta Yuuichi)〔埼玉県〕
+
+10/19 相坂 茜奈(Aisaka Akane)〔东京都〕
+
+10/19 菅 爱理(Kan Airi)〔福冈県〕
+
+10/19 西村 健志(Nishimura Takeshi)〔山形県〕
+
+10/19 儿玉 理惠子(Kodama Rieko)〔宫城県〕
+
+10/19 秋野 かほり(Akino Kahori)〔埼玉県〕
+
+10/19 内山 つかさ(Uchiyama Tsukasa)（参考中译：内山司）〔千叶県〕
+
+10/20 西松 和彦(Nishimatsu Kazuhiko)〔东京都〕（网球王子：拌田干也）
+
+10/20 菅野 英树(Kannno Hideki)〔宫城県〕
+
+10/20 伊藤 翔(Itou Kakeru)〔？？？〕
+
+10/20 重田 香(Shigeta Kaoru)〔新潟県〕
+
+10/20 中野 亚美(Nakano Ami)〔长崎県〕
+
+10/20 柚绮 あおい(Yuzuki Aoi)〔北海道〕
+
+10/20 桃濑 あやみ(Momose Ayami)〔宫城県〕
+
+10/21 矢口 千博(Yaguchi Chihiro)〔东京都〕
+
+10/21 佐藤 广太(Satou Kouta)〔新潟県〕
+
+10/21 伊达 忠智(Date Tadanori)〔长野県〕
+
+10/21 村杉 明彦(Murasugi Akihiro)〔青森県〕
+
+10/21 中村 百伽(Nakamura Momoka)〔北海道〕
+
+10/21 末次 枫(Suetsugu Kaede)〔静冈県〕
+
+10/21 寒川 ほのか(Samukawa Honoka)〔大阪府〕（偶像宣言：风真空）
+
+10/21 森泽 芙美(Morisawa Fumi)〔东京都〕（青空下的约定：羽山海己）
+
+10/21 美幸 キャスリーン(Miyuki Kathleen)（中译：美幸·凯瑟琳）〔东京都〕
+
+10/21 梶田 夕贵(Kajita Yuuki)〔爱知県〕（夜月东升·暮日西沉～Operation Sanctuary～：涩垣茉理）
+
+10/21 细川 祥央(Hosokawa Yoshihisa)〔京都府〕（血战摩苏尔/IS杀录:摩苏尔战线(2019)：迈麦尔(吹替)）
+
+10/21 矢野 明日香(Yano Asuka)（旧名：出野明日香(Ideno Asuka)）〔埼玉県〕（欢迎来带NHK：玉田裕加里）
+
+10/22 和 优希(Kazu Yuuki)〔东京都〕（蓝色时期：大叶真由）
+
+10/22 富泽 雄基(Tomizawa Yuuki)〔东京都〕（旅街晚间秀：名木）
+
+10/22 あさみ ほとり(Asami Hotori)（参考中译：浅见畔）〔富山県〕
+
+10/22 佐藤 未奈子(Satou Minako)〔神奈川県〕（蓝色管弦乐：小樱春）
+
+10/22 高杉 薫(Takasugi Kaoru)（旧名：原田薰(Harada Kaoru)）〔德岛県〕（平安达纪：鬼）
+
+10/22 藤田 仁昭(Fujita Yoshiaki)〔东京都〕
+
+10/22 八尾坂 成美(Yaosaka Narumi)〔静冈県〕
+
+10/23 中岛 百花(Nakajima Momoka)〔北海道〕
+
+10/23 八须贺 孝藏(Hachisuka Kouzou)〔冈山県〕
+
+10/23 阵谷 遥(Jinya Haruka)〔千叶県〕
+
+10/23 孙崎 纯(Magosaki Jun)〔大阪府〕
+
+10/23 平野 夏那子(Hirano Kanako)〔千叶県〕
+
+10/23 春木 めぐみ(Haruki Megumi)（参考中译：春木惠）〔东京都〕
+
+10/23 和泉 ゆいの(Izumi Yuino)（参考中译：和泉唯乃）〔爱知県〕
+
+10/23 吉冈 香织(Yoshioka Kaori)〔千叶県〕（碧蓝航线：波特兰）
+
+10/23 桑山 琴音(Kuwayama Kotone)〔埼玉県〕（三者三叶：辻一芽）
+
+10/23 八须贺 孝藏(Hachisuga Kouzou)（旧名：藤井孝藏(Fujii Kouzou)）〔冈山県〕
+
+10/23 花岛 あや花(Hanashima Ayaka)（中译：花岛彩花）（旧名：花岛彩香）〔滋贺県〕
+
+10/23 章翔 サリナ(Akito Sarina)（参考中译：章翔纱里奈）〔东京都〕（喂，看见耳朵啦：金主）
+
+10/24 いずみ 绫(Izumi Aya)（参考中译：泉绫）〔静冈県〕
+
+10/24 芽衣(Mei)〔冈山県〕（ACCA13区监察课：莫兹）
+
+10/24 春木 のり(Haruki Nori)（参考中译：春木纪）〔千叶県〕
+
+10/24 村上 このみ(Moriyama Konomi)（参考中译：村上好美）〔神奈川県〕
+
+10/24 川口 慎介(Kawaguchi Shinsuke)〔神奈川県〕（京都寺町三条的福尔摩斯：梶原春彦）
+
+10/24 花宫 初奈(Hanamiya Niina)〔大阪府〕（Link！Like！LoveLive!莲之空女学院校园偶像俱乐部：乙宗梢(游戏)）
+
+10/24 井川 康平(Igawa Kouhei)〔岛根県〕
+
+10/24 沼 裕华(Nema Yuuka)〔东京都〕
+
+10/24 小川 隼(Ogawa Shun)〔茨城県〕
+
+10/24 齐藤 智也(Satou Tomoya)〔栎木県〕
+
+10/24 日暮 哲也(Higurashi Tetsuya)〔埼玉県〕
+
+10/25 藤叶 爱香(Fujiha Aika)〔广岛県〕
+
+10/25 吉 高幸(Yoshi Takayuki)〔埼玉県〕
+
+10/25 森末 ひろあき(Morisue Hiroaki)〔冈山県〕
+
+10/25 大泽 风香(Osawa Fuka)〔埼玉県〕
+
+10/25 前田 雄(Maeda Yuu)〔鹿儿岛県〕
+
+10/25 环 いくみ(Tamaki Ikumi)〔静冈県〕
+
+10/25 大下 洋子(Oojimo Youko)〔兵库県〕
+
+10/25 坂东 明香里(Bandou Akari)〔爱知県〕
+
+10/25 松元 菜菜海(Matsumoto Nanami)〔鹿儿岛県〕
+
+10/25 岩濑 周平(Iwase Shouhei)〔千叶県〕（纸箱战机：法条无乐）
+
+10/25 金子 诚(Kaneko Makoto)〔神奈川県〕（月色很美：小笠原大地）
+
+10/25 佐佐木 亚纪(Sasaki Aki)〔奈良県〕（还珠格格(1998)：金锁(吹替)）
+
+10/25 安澄 纯(Azumi Jun)〔长野県〕（光之美少女Splash Star：二阶堂直人）
+
+10/25 伊月 ゆい(Itsuki Yui)（参考中译：伊月唯）〔爱知県〕（D.C初音岛：水越萌）
+
+10/26 德山 靖彦(Tokuyama Yasuhiko)〔大阪府〕（真·三国无双系列：夏侯渊&孙坚）
+
+10/26 茶乃(Chano)（旧名：守屋良美(Moriya Yoshimi)）〔山梨県〕（MOUSE：花村美丽）
+
+10/26 中村 カンナ(Nakamura Kanna)（参考中译：中村栞奈/中村神奈/中村环奈）〔大阪府〕（成为名垂青史的恶役千金吧：威廉姆斯·艾莉西娅）
+
+10/26 木本 景子(Kimoto Keiko)〔福冈県〕
+
+10/26 木村 大树(Kimura Taiju)〔东京都〕
+
+10/26 村冈 辽(Muraoka Ryou)〔佐贺県〕
+
+10/26 竹内 りか(Takeuchi Rika)〔广岛県〕
+
+10/26 外尾 谦吾(Hokao Kengo)〔福冈県〕
+
+10/26 松冈 ゆっこ(Matsuoka Yukko)〔爱知県〕
+
+10/26 桥爪 纹佳(Hshizume Ayaka)〔茨城県〕
+
+10/26 坂本 いじこ(Sakamoto Ijiko)〔京都府〕
+
+10/26 中山 瑶子(Nakayama Youko)〔爱知県〕
+
+10/26 安田 早希(Yasuda Saki)〔东京都〕
+
+10/26 西川 真美(Nishikawa Mami)〔滋贺県〕
+
+10/27 山盛 由果(Yamamori Yuka)〔大阪府〕
+
+10/27 白羽 みな(Shirahane Mina)〔爱知県〕
+
+10/27 新崎 结梨(Shinzaki Yuuri)〔大阪府〕
+
+10/27 志水 结美(Shimizu Yumi)〔东京都〕
+
+10/27 中野 圣子(nakano Seiko)【非1952年广岛县出身者】〔爱知県〕
+
+10/27 续木 友子(Tsuzuki Tomoko)〔东京都〕（电波教师：桃园一也）
+
+10/27 蓑岛 はじめ(Minoshima Hajime)（参考中译：蓑岛初/蓑岛元）〔？？？〕
+
+10/27 イブ 优里安(Ibu Yurian)（本名&旧名&中译：伊武优里安）（其他拼写：Yurianne Eve）（其他中译：伊芙优里安(错译)）〔神奈川県〕（苦甜曼哈顿/你要像喜欢甜一样喜欢苦：苔丝(吹替)）
+
+10/28 大泊 贵挥(Ootomari Takaki)〔富山県〕（人马少女的烦恼：小守真）
+
+10/28 高桥 あみか(Takahashi Amika)（本名&中译：高桥亚美香）〔东京都〕
+
+10/28 秋谷 启斗(Akiya Hiroto)〔熊本県〕（ARGONAVIS from BanG Dream!：曙凉）
+
+10/28 苍谷 和树(Souya Kazuki)（旧名：丸山智行(Maruyama Tomoyuki)）〔东京都〕
+
+10/28 优希 麻梨子(Yuki Mariko)〔东京都〕（Engage Kiss(契约之吻)：凯亚·阿南达）
+
+10/28 石原 朋典(Ishihara Tomonori)〔神奈川県〕
+
+10/28 许 绫香(Kyo Ayaka)〔埼玉県〕
+
+10/28 铃木 晴久(Suzuki Haruhisa)〔岐阜県〕
+
+10/29 白户 祐太郎(Shirato Yuutarou)〔千叶県〕
+
+10/29 山场 凉太郎(Yamaba Ryoutarou)〔福井県〕
+
+10/30 铃木 卓朗(Suzuki Takurou)〔宫城県〕
+
+10/30 贵岛 绫子(Kijima Ayako)〔神奈川県〕
+
+10/30 城山 凌也(Shiroyama Ryouya)〔三重県〕
+
+10/30 中田 彩理沙(Nakada Arisa)〔富山県〕
+
+10/30 猪股 由起(Inomata Yuki)〔东京都〕
+
+10/30 涡木 晧太(Uzuki Koudao)（旧名：涡木皓太）〔神奈川県〕
+
+10/30 珠宫 夕贵(Tamamiya Yuki)〔爱知県〕（竞女!!!!!!!!：冈本水希）
+
+10/30 风间 慎一(Kazama Shinichi)（旧名：乃村慎一(Nomura Shinichi)）〔青森県〕
+
+10/30 空见 ゆき(Sorami Yuki)（参考中译：空见雪/空见有希）〔宫崎県〕（Re:Stage！：长谷川美衣）
+
+10/30 咲咲木 瞳(Sasaki Hitomi)〔东京都〕（赛马娘 Pretty Derby ROAD TO THE TOP：爱慕织姬）
+
+10/31 左座 翔丸(Zouza Shoumaru)〔熊本県〕（EX-ARM：近藤）
+
+10/31 まちだ 侑子(Machida Yuuko)（参考中译：町田侑子）〔长崎県〕
+
+10/31 Marika(Marika)（旧名：中谷茉莉花(Nakatani Marika)）〔香川県〕
+
+10/31 新福 樱(Shinfuku Sakura)〔鹿儿岛県〕（终究、与你相恋：西野水帆）
+
+10/31 いしかわ ひとみ(Ishikawa Hitomi)（参考中译：石川瞳）（本名&旧名：石川ひとみ）〔北海道〕（前辈是男孩子：石川千寻）
+
+10/31 板谷 彩香(Itatani Ayaka)〔大阪府〕
+
+10/31 中村 美香(Nakamura Mika)〔熊本県〕
+
+10/31 楠原 志乃(Kusuhara Shino)〔千叶県〕
+
+10/31 野寺 美穗(Nodera Miho)〔？？？〕
+
+10/31 宗川 めぐみ(Soukawa Megumi)〔福岛県〕
+
+11/01 津田 拓真(Tsuda Takuma)〔福冈県〕
+
+11/01 石川 志织(Ishikawa Shiori)〔北海道〕
+
+11/01 增田 雄市(Masuda Yuuichi)〔东京都〕
+
+11/01 虎渡 瑞季(Torato Mizuki)〔秋田県〕
+
+11/01 木南 亚莉沙(Kinami Arisa)〔兵库県〕
+
+11/01 关根 有咲(Sekine Arisa)〔群马県〕（甜梦猫MIX！：安西健太）
+
+11/01 西田 雅一(Nishida Masakazu)〔东京都〕（枪神斯托拉塔斯：片桐镜磨）
+
+11/01 本乡 里实(Hongo Satomi)〔冈山県〕（Puraore!～PRIDE OF ORANGE～：清濑优）
+
+11/01 唐户 俊太郎(Karato Syuntaro)〔东京都〕（请和我的老公结婚(2024)：柳志赫(吹替)）
+
+11/01 萩原 あみ(Hagihara Ami)（参考中译：萩原亚美）〔大阪府〕（扩张少女系三重奏：恋崎雅）
+
+11/02 山田 浩一(Yamada Kouichi)〔？？？〕（棒球物语：松本）
+
+11/02 西川 舞(Nishikawa Mai)〔东京都〕（天空与海洋之间：宇田川美奈）
+
+11/02 吉贞 萌(Yoshisada Mei)〔滋贺県〕（Z/X Code reunion：带刀安比奈）
+
+11/02 野村 胜人(Nomura Katsuhito)〔茨城県〕（CODE-E&Mission-E：巫光太郎）
+
+11/02 宫世 真理子(Miyase Mariko)（旧名：宫地真理子(Miyaji Mariko)）〔大阪府〕（食草老龙被冠以恶龙之名：阿利安堤）
+
+11/02 いのうえ かよ(Inoue Kayo)〔神奈川県〕
+
+11/02 小林 都(Kobayashi Miyako)〔大阪府/兵库県〕
+
+11/02 大累 彩实(Oorui Ayami)〔？？？〕
+
+11/02 小柳 日菜(Koyanagi Hina)〔长野県〕
+
+11/02 须藤 亚由美(Sudo Ayumi)〔福岛県〕
+
+11/02 赤池 裕美子(Akaike Yumiko)〔东京都〕
+
+11/02 纲岛 瑞惠(Tsunashima Mizue)〔东京都〕
+
+11/03 宫本 龙也(Miyamoto Tatsuya)〔枥木県〕
+
+11/03 栗山 浩一(Kuriyama Kouichi)〔茨城県〕
+
+11/03 汐风 有华(Shiokaze Arika)〔大阪府〕
+
+11/03 尾崎 えり(Ozaki Eri)（旧名&中译：尾崎惠理）〔东京都〕
+
+11/03 田口 香织(Tauchi Kaori)〔东京都〕（大叔和棉花糖：向井）
+
+11/03 涩谷 慧(Shibuya Satoi)〔埼玉県〕（TECHNOROID Project：铬）
+
+11/03 森冈 由花(Morioka Yuka)〔福岛県〕（城下町的蒲公英：菜菜绪）
+
+11/03 成濑 诚(Naruse Makoto)〔茨城県〕（新白雪姬传说PRETEAR：萤）
+
+11/03 南云 大辅(Nagumo Daisuke)〔岩手県〕（游戏王SEVENS：大森面三郎）
+
+11/03 早濑 莉花(Hayase Marika)〔北海道〕（爆肝工程师的异世界狂想曲：露露）
+
+11/04 早川 彩音(Hayakawa Ayane)〔东京都〕（恐怖巨兽(2002年电影)：简(吹替)）
+
+11/04 钉宫 由稀(Kugimiya Yuki)〔东京都〕（游戏王GX：圣子）
+
+11/04 菅原 雅芳(Sugawora Masayoshi)〔北海道〕（决斗大师：兔大佐）
+
+11/04 千叶 优辉(Chiba Yuuki)〔岩手県〕（宇宙战舰大和号2199：太田健二郎）
+
+11/04 草野 太一(Kusano Taiichi)〔大阪府〕（Fairy兰丸～让我来帮助你的心～：陆冈树果）
+
+11/04 井上 里奈(Inoue Rina)〔岐阜県〕
+
+11/04 金成 千洋(Kanari Chihiro)〔福冈県〕
+
+11/05 铃木 沨(Suzuki Fuu)〔爱知県〕
+
+11/05 佐藤 纯(Satou Makoto)〔东京都〕
+
+11/05 中山 惠梨香(Nakayama Erika)〔东京都〕
+
+11/05 铃原 言美(Suzuhara Kotomi)〔东京都〕
+
+11/05 稻垣 拓哉(Inagaki Takuya)〔东京都〕
+
+11/05 白兔 夕季(Shirato Yuki)（本名&旧名：沼田侑希(Nemata Yuki)）〔青森県〕
+
+11/05 伊仓 かこ(Ikura Kako)（参考中译：伊仓佳子）（旧名：伊仓里佳(Ikura Rika)）〔神奈川県〕
+
+11/05 里 卓哉(Sato Takuya)（旧名：里タクヤ）〔鹿儿岛県〕（真正的正义电影系列/TRUE JUSTUCE：格拉韦斯(吹替)）
+
+11/06 青树 鲇希(Aoki Ayuki)（旧名：青木鲇希）〔冈山県〕
+
+11/06 疋田 高志(Hisada Takashi)〔福冈県〕（闪电十一人：砂木沼治）
+
+11/06 外崎 大辅(Tonosaki Daisule)〔青森県〕（关于完全听不懂老公在说什么：山田）
+
+11/06 小幡 あけみ(Obata Akemi)（参考中译：小幡明美）〔东京都〕（华丽一族：澄田沙奈枝）
+
+11/06 太田 さとり(Oota Satori)）（参考中译：太田悟理）（旧名：太田胜弘(Oota Katsuhiro)）〔埼玉県〕
+
+11/06 大和 ほなみ(Yamato Honami)（参考中译：大和穗波）（本名&旧名：大和谷茉央(Yamatoya Mao)）〔和歌山県〕
+
+11/07 猪泽 悠成(Izawa Yuusei)〔东京都〕
+
+11/07 羽鸟 佑(Hatori Yuu)〔滋贺県〕
+
+11/07 田丸 裕臣(Tamaru Hiroomi)〔东京都〕
+
+11/07 近藤 广务(Kondou Hiromu)〔埼玉県〕
+
+11/07 平野 俊隆(Hirano Toshitaka)〔北海道〕
+
+11/07 八岛 玲(Yashima Rei)〔高知県〕
+
+11/07 景户 利衣(Keito Rii)（其他拼写：Keito Lee）〔埼玉県〕
+
+11/07 せき しほ(Seki Shiho)（旧名&中译：关汐帆）〔千叶県〕
+
+11/07 大野 智敬(Oono Tomohiro)〔兵库県〕（朋友游戏：四部诚）
+
+11/07 寺田 晴名(Tearada Haruna)（旧名：泽田晴名(Sawada Haruna)）〔岐阜県〕
+
+11/07 井藤 智哉(Itou Tomoya)〔千叶県〕（战队红战士在异世界当冒险者：浅垣灯悟/羁绊红）
+
+11/07 羽豆 幸子(Hazu Yukiko)〔兵库県〕（内阁权力犯罪强制取缔官财前丈太郎：望月美帆）
+
+11/07 宫咲 あかり(Miyazaki Akari)（参考中译：宫咲明里/宫咲朱里/宫咲明莉）（别名：miA）〔神奈川県〕（人气温泉『异世界温泉』开拓记 ～40岁左右的温泉爱好者转世到了悠闲的温泉天堂～：路易路易）
+
+11/08 幸山 奈央(Koyama Nao)〔爱知県〕（小魔女DoReMi：樋口真树）
+
+11/08 秋吉 彻(Akiyoshi Tooru)〔熊本県〕（最强武将传三国演义：费诗(游戏)）
+
+11/08 弘松 芹香(Hiromatsu Serika)〔高知県〕（DOTA龙之血：米拉娜）
+
+11/08 ふじわら みはね(Fujiwara Mihane)（参考中译：藤原美羽）〔大阪府〕
+
+11/08 南波 ゆき(Minami Yuki)（参考中译：南波由纪）〔埼玉県〕（寻找失去的未来：雪乃）
+
+11/08 霜月 紫(Shimotsuke Yukari)（旧名：YATCH）〔北海道〕（美少女死神还我H之魂：玉野光）
+
+11/08 樱野 いづ奈(Sakurano Izuna)（中译：樱野棱奈）（旧名：天ノ崎棱奈(Amanosaki Izuna)）〔京都府〕
+
+11/08 しろた のぞみ(Shirota Nozomi)（中译：代田希美）（旧名：田代美树(Tashiro Miki)）〔千叶県〕
+
+11/08 船桥 まい(Funahashi Mai)（旧名&中译：船桥舞）〔大阪府〕【非2000年5月27日神奈川出身同名同姓者】
+
+11/08 モアイ 岩下(Moai Iwashita)（中译：摩艾岩下）（本名&旧名：岩下读男(Iwashita Tokuo)）〔福冈県〕（（太宗李芳远(2021)：李芳雨(吹替)））
+
+11/08 大桥 勇人(Oohashi Yuuto)〔福岛県〕
+
+11/08 冈村 勇治(Okamura Yuuji)〔大阪府〕
+
+11/08 安倍 里纱(Abe Risa)〔东京都〕
+
+11/08 松岛 杏实(Matsushima Ami)〔福井県〕
+
+11/08 小原 健史(Kobara Takefumi)〔岩手県〕
+
+11/08 松永 修弥(Matsunaga Syuya)〔东京都〕
+
+11/08 横田 みはる(Yokoda Miharu)〔东京都〕
+
+11/08 富田 凉介(Tomita Ryousuke)〔爱媛県〕
+
+11/09 朝田 将史(Asada Masafumi)〔岐阜県〕
+
+11/09 伊尾 槙纪(Io Masatoshi)〔石川県〕
+
+11/09 间森 勘(Mamori Kan)〔东京都〕
+
+11/09 坂口 圣(Sakaguchi Satoshi)〔大阪府〕
+
+11/09 山根 俊介(Yamane Shunsuke)〔京都府〕
+
+11/09 宫野 ひかる(Miyano Hikaru)（参考中译：宫野光）〔东京都〕
+
+11/09 林藤 さちこ(Rindou Sachiko)（参考中译：林藤幸子）〔千叶県〕
+
+11/10 岛津 耕介(Shimazu Kosuke)〔新潟県〕（上阳赋(2021)：马子隆(吹替)）
+
+11/10 田口 奏弥(Taguchi Kanami)〔静冈県〕（数码宝贝Ghost Game：柏木美佳）
+
+11/10 水咲 まりな(Mizusaki Marina)（参考中译：水咲真里奈/水咲麻里奈）〔东京都〕
+
+11/10 华山 みお(Kayama Mio)（中译：华山美绪）（旧名：萩原美绪(Ogihara Mio)）〔埼玉県〕
+
+11/10 高尾 ゆき(Takao Yuki)（中译：高尾友记）（本名&旧名：高尾友记子(Takao Yukiko)）【非1990年6月30日兵库县出身者】〔大阪府〕
+
+11/10 安斋 纱彩(Anzai Saaya)〔东京都〕
+
+11/10 松永 步弓(Matsunaga Ayumi)〔兵库県〕
+
+11/10 纲川 博之(Tsunakawa Hiroyuki)〔枥木県〕
+
+11/10 冈田 佳那枝(Okada Kanae)〔京都府〕
+
+11/11 天津 胜哉(Amatsu Katsuya)〔群马県〕
+
+11/11 土井 真理(Toi Mari)〔大分県〕
+
+11/11 谷内 健(Yanai Ken)〔新潟県〕
+
+11/11 町本 成史(Machimoto Narufumi)〔秋田県〕
+
+11/11 渡部 康大(Watanabe Yasuhiro)〔枥木県〕
+
+11/11 并木 さくら(Namiki Sakura)（参考中译：并木樱）〔兵库県〕
+
+11/11 香月 はるか(Kouzuki Haruka)（参考中译：香月遥）（旧名：マイア(Maia)）〔大阪府〕（碧蓝航线：恐怖）
+
+11/11 南川 のりこ(Minagawa Noriko)（中译：南川典子）（本名&旧名：皆川典子(Minagawa Noriko)）〔埼玉県〕
+
+11/11 森山 由梨佳(Moriyama Yurika)（本名&旧名：松冈由梨佳(Matsuoka Yurika)）〔三重県〕（Puraore!～PRIDE OF ORANGE～：柳田薰子）
+
+11/12 林 大地(Hayashi Daichi)〔群马県〕（幼女战记：莱纳·诺伊曼）
+
+11/12 ソンド(Sondo)（其他拼写：SOUNGDOK）〔大阪府〕（异兽魔都：栗鼠）
+
+11/12 松冈 正法(Matsuoka Masanori)〔岩手県〕
+
+11/13 内野 明音(Uchino Akane)〔神奈川県〕
+
+11/13 藤井 洋辅(Fujii Yousuke)〔长崎県〕
+
+11/13 高石 唯(Takaishi Yui)〔兵库県〕
+
+11/13 入江 理惠(Irie Rie)〔鸟取県〕
+
+11/13 山本 薰平(Yamamoto Kunpei)〔山口県〕
+
+11/13 成田 佳惠(Narita Yoshie)〔秋田県〕
+
+11/13 杉山 太一(Sugiyama Taichi)〔神奈川県〕
+
+11/13 筱宫 沙弥(Shinomiya Saya)〔千叶県〕（Rewrite：凤千早）
+
+11/13 神山 裕纪(Kouyama Yuki)〔熊本県〕（秋之鼓点：须藤美园）
+
+11/13 高桥 裕吾(Takahashi Yugo)〔东京都〕（舞-HiME：鸨羽巧海）
+
+11/13 高冈 ヒロシ(Takaoka Hiroshi) （参考中译：高冈浩）〔高知県〕
+
+11/13 田尻 ひろゆき(Tajiri Hiroyuki)（中译&本名：田尻博之）〔北海道〕
+
+11/13 新田 京助(Nitta Kyosuke)（旧名：新田大地(Nitta Daichi)）〔京都府〕
+
+11/13 绫濑 みゆう(Ayase Miyuu)（参考中译：绫濑美优/绫濑美悠/绫濑美由）〔神奈川県〕
+
+11/14 工藤 雅久(Kudou Gaku)（旧名：曾我部雅久(Sogabe Gaku)）〔大阪府〕
+
+11/14 樱井 海亚(Sakurai Mia)（旧名：樱泽爱海(Sakurazawa Ami)）〔东京都〕
+
+11/14 天海 玖美(Amami Kumi)（旧名：浅井久美子(Asai Kumiko)）〔神奈川県〕
+
+11/14 千种 春树(Chigusa Haruki)（旧名：本间三代子(Honma Miyoko)）〔爱知県〕
+
+11/14 やまなか 正之(Yamanaka Masayuki)（中译：山中正之）（旧名：山中正幸）〔东京都〕
+
+11/14 池永 麻希(Ikenaga Maki)〔东京都〕
+
+11/14 田中 太郎(Tanaka Tairou)〔福冈県〕
+
+11/14 仓濑 ひまり(Kurase Himari)〔东京都〕
+
+11/14 七濑 ゆか(Nanase Yuka)〔宫崎県〕
+
+11/14 木内 岭男(Kiuchi Reo)〔东京都〕
+
+11/15 菅谷 弥生(Sugaya Yayoi)〔千叶県〕
+
+11/15 宫本 ひろこ(Miyamoto Hiroko)〔东京都〕
+
+11/15 福崎 正之(Fukuzaki Masayuki)〔千叶県〕
+
+11/15 小泉 乔生(Koizumi Takao)〔东京都〕
+
+11/15 古村 澪(Komura Mio)〔长崎県〕
+
+11/15 渡边 えみ(Watanabe Emi)〔福岛県〕
+
+11/15 宫岛 ひとみ(Miyajima Hitomi)〔埼玉県〕
+
+11/15 久山 彩(Kuyama Aya)〔滋贺県〕（DRAMAtical Murder：克拉拉）
+
+11/15 きとう れいこ(Kitou Reiko)（旧名&中译：木藤玲子）〔北海道〕（妙趣小飞仙：菜菜子）
+
+11/16 高冈 香(Takaoka Kaori)〔福岛県〕（农业娘：花畑キラリ）
+
+11/16 汐见 和由(Shiomi Kazuyoshi)（旧名：盐见和由） 〔东京都〕
+
+11/16 泽田 姬(Sawada Hime)〔东京都〕（白圣女与黑牧师：塞西莉亚）
+
+11/16 平尾 阳子(Hirao Youko)〔京都府〕
+
+11/16 冲田 优衣(Okita Yuui)〔兵库県〕
+
+11/16 千叶 光纱(Chiba Misa)〔宫城県〕
+
+11/17 永松 宽隆(Nagamatsu Hirotaka)〔埼玉県〕
+
+11/17 筱田 有香(Shinoda Yuka)〔爱知県〕
+
+11/17 增田 龙马(Masuda Ryouma)〔岐阜県〕
+
+11/17 松村 淑子(Matsumura Yoshiko)〔东京都〕
+
+11/17 佐藤 香织(Satou Kaori)〔埼玉県〕
+
+11/17 三浦 千幸(Miura Chiyuki)〔宫城県〕（再来一本！：冰浦永远）
+
+11/17 夏谷 美希(Natsutani Miki)〔东京都〕（租借女友：木之下晴美）
+
+11/17 园山 ひかり(Sonoyama Hikari)（参考中译：园山光）〔北海道〕（消灭都市：由雅）
+
+11/18 日比 爱子(Hibi Aiko)〔埼玉県〕（数码宝贝合体战争：潜水兽）
+
+11/18 原田 ひとみ(Harada Hitomi)（参考中译：原田瞳）〔山口県〕（闪乱神乐：飞鸟）
+
+11/18 小池 いずみ(Koike Izumi)（参考中译：小池泉）〔兵库県〕（银河铁道之夜：路奇）
+
+11/18 タカハシ サヲリ(Takahashi Sawori)（旧名&中译：高桥沙织(Takahashi Saori)）〔爱知県〕
+
+11/18 望见(Nozomi)（旧名：冈田望见(Okada Nozomi)(本名)/优木望见(Yuki Nozomi)）〔广岛県〕
+
+11/18 花濑 あさみ(Hanase Asami)（中译：花濑爱纱实）（其他中译：花濑麻美(错译)）（本名&旧名：原爱纱实(Hara Asami)）〔兵库県〕（粗点心战争：玉井玉子）
+
+11/18 猪野 和真(Ino Kazuma)〔埼玉県〕
+
+11/18 山下 创也(Yamashita Shouya)〔神奈川県〕
+
+11/18 小松 郁(Komatsu Kaoru)〔鸟取県〕
+
+11/18 小川 大介(Ogawa Daisuke)〔东京都〕
+
+11/18 木村 咲良(Kimura Sakura)〔神奈川県〕
+
+11/18 宫内 尊宽(Miyauchi Takahiro)〔东京都〕
+
+11/18 须泽 朝美(Suzawa Asami)〔东京都〕
+
+11/18 门胁 薰(Kadowaki Kaoru)〔鸟取県〕
+
+11/19 米村 かな子(Yonemura Kanako)〔兵库県〕
+
+11/19 内田 大加宏(Uchida Takahiro)〔大阪府〕
+
+11/19 一田 梨江(Ichida Rie)〔熊本県〕
+
+11/19 石井 绫(Ishii Aya)〔埼玉県〕
+
+11/19 泷本 有太(Takimoto Yuuta)〔神奈川県〕
+
+11/19 太田 佳织(Ohda Kaori)〔枥木県〕（To heart2：吉冈千惠）
+
+11/19 川口 翔(Kawagushi Syou)（旧名：川口翔之介(Kawaguchi Shounosuke)）〔东京都〕
+
+11/19 若泉 绘子(Wakaizumi Eko)（旧名：斋藤かえで(Saitou Kaede)）（本名：入井绘衣子(Irii Eiko)）〔枥木県〕
+
+11/19 船户 健行(Funado Takeyuki)（旧名：ひのもとはじめ(Hinomoto Hajime)）〔爱媛県〕（重战机L盖姆：阿伦·杰尔巴）
+
+11/19 神路 めぐみ(Kamiji Megumi)（中译：神路芽久未）（旧名：樱田芽久未(Sakurada Megumi)）（本名：夏目真帆(Natsume Maho)）〔静冈県〕
+
+11/20 小若 和郁那(Kowaka Wakana)〔冈山県〕（在地下城寻求邂逅是否搞错了什么II：三条野·春姬）
+
+11/20 高桥 里枝(Takahashi Rie)〔东京都〕（Another：沼田峰子）
+
+11/20 藤田 昌代(Fujita Masayo)〔新潟県〕（白虎：杏藤子子）
+
+11/20 细川 量代(Hosokawa Kazuyo)〔香川県〕
+
+11/20 太田 一骑(Oota Kazuki)〔东京都〕
+
+11/21 本乡 さと子(Hongou Satoko)〔爱知県〕
+
+11/21 佐久间 祐成(Sakuma Yusei)〔千叶県〕
+
+11/21 茧井 遥(Mayui Haruka)〔岐阜県〕
+
+11/21 秋叶 恭平(Akiba Kyouhei)〔神奈川県〕
+
+11/21 铃木 ユースケ(Suzuki Yuusuke)〔爱知県〕
+
+11/21 安井 绘里(Yasui Eri)〔滋贺県〕（永生之酒：路安）
+
+11/21 伊波 奈奈(Inami Nana)〔滋贺県〕（徒然喜欢你：七濑薰）
+
+11/21 锅田 カホル(Nabeta Kahoru)（参考中译：锅田薰）〔爱知県〕
+
+11/21 佐佐木 奈绪(Sasaki Nao)〔大阪府〕（IDOLY PRIDE：佐伯遥子）
+
+11/22 羽贺 有里(Haga Yuri)（旧名：羽贺千夏(Haga Chinatsu)）〔新潟県〕
+
+11/21 羽鸟 飒希(Hatori Satsuki)（本名：岩田飒希(Iwada Satsuki)）〔大分県〕
+
+11/22 和田 将弥(Wada Masaya)〔埼玉県〕（ARGONAVIS from BanG Dream!：黑川灯）
+
+11/22 坂田 有希(Sakata Yuki)（配偶：西垣俊作）〔神奈川県〕（苍之瞳的少女：米丽雅）
+
+11/22 大内 茜(Oouchi Akane)（旧名：上田茜(Ueda Akane)）〔神奈川県〕（BEASTARS：艾莲）
+
+11/22 梅里 纱生(Umesato Saki)（旧名：梅泽幸/梅里纱希）〔爱知県〕（濑户的花嫁：三河海(幼年时期)）
+
+11/22 松下 亚纪(Matsushita Aki)〔埼玉県〕
+
+11/22 莲田 美纪(Hasuda Miki)〔埼玉県〕
+
+11/22 天野 真实(Amano Ami)〔千叶県〕
+
+11/22 抚养 佑树(Muya Yuuki)〔大阪府〕
+
+11/22 伊藤 岳洋(Itou Takehiro)〔三重県〕
+
+11/22 宜野座 新(Ginoza Shin)〔爱知県〕
+
+11/22 五十岚 亮太(Igarashi Ryouta)〔岩手県〕
+
+11/22 手冢 ひろみ(Tezuka Hiromi)〔山形県〕
+
+11/23 みさお(Misao)〔东京都〕
+
+11/23 伊藤 和正(Itou Kazumasa)〔三重県〕
+
+11/23 布施川 一宽(Fusegawa Kazuhiro)〔东京都〕
+
+11/23 枝木 勇介(Edaki Yusuke)〔京都府〕
+
+11/23 森下 由梨(Morishita Yuri)〔埼玉県〕
+
+11/23 障子 圣奈(Shouji Sena)〔爱知県〕
+
+11/23 Ashir(Asya)（旧名：白土麻子(Shiratsuchi Asako)）〔千叶県〕
+
+11/23 桃江 トウコ(Momoe Touko)（参考中译：桃江瞳子）（旧名：河野佑美(Kawano Yumi)）〔爱知県〕
+
+11/24 苏和 はるみ(Sowa Harumi)（旧名&中译：苏和治美）〔爱知県〕
+
+11/24 上村 源(Kamimura Minato)〔东京都〕（Fustal Boys!!!!!：鞍马雪丸）
+
+11/24 铃木 恭辅(Suzuki Kyousuke)〔爱知県〕（极上！！超人气委员长：皇月赛因）
+
+11/24 春川 友纪(Harukawa Yuki)〔福岛県〕（天华百剑～欢迎来到铭治馆！～：堀贯正宗）
+
+11/24 小日向 茜(Kohinaka Akane)（别名：コヒメ·リト·プッチ）〔福冈県〕（ISUCA：相马茉莉）
+
+11/24 漆山 ゆうき(Urushiyama Yuuki)（本名&旧名&中译：漆山优希）〔山形県〕（最响Kamizmode!：梦幻大）
+
+11/24 山口 令悟(Yamaguchi Reigo)（旧名：山口崇浩(Yamaguchi Takahiro)）〔东京都〕（异世界自杀小队：死亡射手）
+
+11/24 大木 咲绘子(Ooki Sakie)〔千叶県〕（恶魔的破坏 DEAD DEAD DEAMON\'S DEDEDEDE DESTRUCTION：平间凛）
+
+11/24 山崎 重(Yamasaki Atsushi)〔冈山県〕
+
+11/24 藤屋 裕子(Fujiya Yuuko)〔北海道〕
+
+11/24 尾崎 未来(Ozaki Miku)〔神奈川県〕
+
+11/24 吉田 和生(Yoshida Kazuki)〔静冈県〕
+
+11/25 滨野 雅嗣(Hamano Masashi)〔埼玉県〕
+
+11/25 山田 纱智(Yamada Sachi)〔爱知県〕
+
+11/25 水野 清人(Mizuno Kiyoto)〔千叶県〕
+
+11/25 鸟羽 优好(Toba Yuuko)（旧名：鸟羽优子）〔千叶県〕
+
+11/25 大仓 彩(Ookura Aya)〔大阪府〕（玻璃假面：白鸟令奈）
+
+11/25 平野 智惠(Hirano Chie)〔千叶県〕（我爱你宝贝：坂下都）
+
+11/25 あんべ あつし(Anbe Atsushi)（旧名&中译：安倍敦）〔东京都〕
+
+11/25 塙 英子(Hanawa Eiko)〔神奈川県〕（上载新生系列：露西(吹替)）
+
+11/25 中村 樱(Nakamura Sakura)〔东京都〕（魔物娘的同居日常：拉克瑞纳）
+
+11/25 白那美 アンジュ(Shiranami Anju)（参考中译：白那美安琪/白那美杏树）〔玻利维亚〕
+
+11/26 根本 优奈(Nemoto Yuna)〔东京都〕（恋语轻唱：泉志帆）
+
+11/26 石上 美帆(Ishigami Miho)〔群马県〕（Code：Realize～创世的姬君～：德拉克鲁瓦二世）
+
+11/26 阪本 智美(Sakamoto Satomi)〔兵库県〕（どちらかが俺に惚れている：川崎清美(游戏)）
+
+11/26 麦穗 あんな(Mugiho Anna)（本名&旧名&中译：麦穗杏菜）（其他中译(错译)：麦穗安奈/麦穗杏奈）〔岛根県〕（LoveLive! School idol project：羊驼）
+
+11/26 中田 章人(Nakata Akito)〔大阪府〕
+
+11/26 原田 男(Hatada Dan)〔静冈県〕
+
+11/26 水垣 洋子(Mizugaki Youko)〔东京都〕
+
+11/26 森 香菜(Mori Kana)〔大阪府〕
+
+11/26 秦 正武(Hata Masatake)〔宫城県〕
+
+11/27 清水 纱罗(Shimizu Sara)〔福冈県〕
+
+11/27 桑原 苑美(Kuwabara Sonomi)〔岛根県〕
+
+11/27 日向 葵(Hinata Aoi)〔兵库県〕
+
+11/27 西川 侑津佳(Nishikawa Yuzuka)〔滋贺県〕（LOVE STAGE!!：佐藤缓奈）
+
+11/27 市原 ゆりえ(Ichihara Yurie)（中译：市原友里惠）（本名&旧名：市川友里惠(Ichikawa Yurie)）〔福岛県〕
+
+11/28 村上 まどか(Murakami Madoka)〔爱媛県〕（R-15：圆修律）
+
+11/28 上田 纯子(Ueda Junko)〔京都府〕（学院爱丽丝：音无由良）
+
+11/28 久间 梨穗(Kuma Riho)〔神奈川県〕（瓦尼塔斯的手记：莉琪）
+
+11/28 真砂 胜美(Masago Katusmi)〔东京都〕（仙界传封神演义：通天教主）
+
+11/28 なかせ ひな(Nakase Hina)（参考中译：中濑日菜/中濑雏）（旧名：村上仁美(Mukakami Hitomi)(本名)/REIKA/中濑ひな/中濑ひなた/泽野冷果(Sawano Reika)）〔东京都〕（Persona4 the ANIMATION：小西早纪）
+
+11/28 木村 悠里(Kimura Yuri)〔岩手県〕
+
+11/28 沼田 智佳(Nemata Chike)〔东京都〕
+
+11/28 高槻 佳奈(Takatuki Kana)〔大阪府〕
+
+11/28 时泽 香保里(Tokisawa Kaori)〔东京都〕
+
+11/28 宇那 明莉(Una Akari)〔奈良県〕
+
+11/29 金丸 健太(Kanemaru Kenta)〔宫崎県〕
+
+11/29 小山 みか(Koyama Mika)〔神奈川県〕
+
+11/29 樱井 慎也(Sakurai Shinya)〔兵库県〕
+
+11/29 服部 友香(Hattori Yuka)〔东京都〕
+
+11/29 奥山 康之(Okuyama Yusuyuki)〔东京都〕
+
+11/29 天野 聪美(Amano Satomi)〔神奈川県〕（球咏：山崎珠姬）
+
+11/29 本桥 隼(Motohashi Hayato)〔埼玉県〕（山河令(2020)：曹蔚宁(吹替)）
+
+11/29 西森 千丰(Nishimori Chihiro)（本名&旧名：小西丰德(Konishi Toyonori)）〔静冈県〕
+
+11/29 野滨 たまこ(Nobama Tamako)（旧名：笹川丽子(Sasagawa Reiko)）〔京都府〕（地狱少女三鼎：北山明）
+
+11/30 京 亚耶奈(Kyouu Ayana)（旧名：京あやな）〔福冈県〕
+
+11/30 角川 早织(Kagikawa Saori)〔福井県〕（想成为世界最强！：西原凉）
+
+11/30 野中 深爱(Nonaka Mio)〔爱知県〕（再见了，我的克拉默：加藤爱奈）
+
+11/30 丰田 丰(Toyota Tayo)（旧名：丰川功弘(Toyokawa Katsuhiro)）〔北海道〕
+
+11/30 安芸 けい子(Aki Reiko)（参考中译：安芸惠子）〔广岛県〕（倚天屠龙记(2009)：金花婆婆(吹替)）
+
+11/30 细川 美菜子(Hosokawa Minako)〔兵库県〕（联盟空军航空魔法音乐队光明魔女：涩谷祈）
+
+11/30 沟上 真纪子(Mizogami Makiko)〔和歌山県〕
+
+11/30 后藤 惠里菜(Gotou Erina)〔福冈県〕
+
+11/30 黑木 敦史(Kuroki Atsushi)〔京都府〕
+
+11/30 泽田 博幸(Sawada Hiroyuki)〔北海道〕
+
+12/01 本间 沙智子(Honma Sachiko)〔东京都〕
+
+12/01 根冢 良(Nezuka Ryo)〔茨城県〕
+
+12/01 榊原 弘子(Sakakibara Hiroko)〔爱知県〕
+
+12/01 矢部 阳子(Yabe Youko)〔宫崎県〕
+
+12/01 大岛 美咲(Ooshima Misaki)〔福冈県〕
+
+12/01 黑羽 保(Kuroha Tamotsu)〔茨城県〕
+
+12/01 濑上 达也(Senoue Tatsuya)〔埼玉県〕
+
+12/01 司波 悠真(Shiba Yuuma)〔埼玉県〕
+
+12/01 有贺 由衣(Ayuga Yui)〔冈山県〕（香格里拉：美邦）
+
+12/01 大贺 真帆(Ooga Maho)〔岛根県〕（Fly Babies：艾美）
+
+12/01 本丘 りさ(Motooka Risa)（参考中译：本丘理沙）〔石川県〕
+
+12/01 绀乃 ゆう(Konno Yuu)（中译：绀乃悠）（旧名：樱井悠子(Sakurai Yuuko)）〔神奈川県〕
+
+12/01 仲田 ありさ(Nakada Arisa)（参考中译：仲田有纱/仲田亚里沙）〔冲绳県〕（圣剑学院的魔剑使：夏莉·布拉卡斯）
+
+12/02 やまかわ ともみ(Yamakawa Tomomi)（旧名&中译：山川朋美）〔福冈県〕
+
+12/02 大城 芽唯(Ooshiro Mei)〔冲绳県〕（这如果叫作爱情感觉会很恶心：琉璃）
+
+12/02 樱井 皓基(Sakurai Kouji)（旧名：樱井慎二朗(Sakurai Shinjirou)）〔埼玉県〕
+
+12/02 村上 聪(Murakami Satoshi) 【非1994年千叶县出身同名者，姓名发音略有不同】〔北海道〕
+
+12/02 筱原 まさのり(Shinohara Masanori)（本名&旧名&中译：筱原正典）〔长野県〕（铁拳：三岛一八）
+
+12/02 ともいちろー(Tomoichiro)（中译：智一朗）（旧名：田中智一朗(Tanaka Tomoichirou)）〔宫城県〕
+
+12/02 纸本 瞬(Kamimoto Shun)〔爱知県〕
+
+12/03 西村 野步子(Nishimura Nobuko)〔大阪府〕
+
+12/03 甘束 まお(Amatsuka Mao)〔埼玉県〕
+
+12/03 山田 康裕(Yamada Yasuhiro)〔冈山県〕
+
+12/03 古川 裕隆(Furukawa Yutaka)〔宫崎県〕
+
+12/03 三上 瑛士(Mikami Eiji)〔广岛県〕（蓝色监狱：冰织羊）
+
+12/03 小野 将梦(Ono Masamu)〔和歌山県〕（number24：近卫素直）
+
+12/03 铃木 亚理沙(Suzuki Arisa)〔山形県〕（New Game！！：望月红叶）
+
+12/03 川上 贵史(Kawakami Takafumi)〔大阪府〕（星舰驾驶员：真田时谷）
+
+12/03 相乐 信赖(Sagara Nobuyori)（本名&旧名：伊藤信赖(Itou Nobuyori)）〔爱知県〕
+
+12/03 安倍 ようこ(Abe Youko)（参考中译：安倍阳子）〔东京都〕（School Days：卯月）
+
+12/03 长谷川 暖(Hasegawa Nodoka)（本名&旧名：小林暖(Kobayashi Nodoka)）〔东京都〕（新干线变形机器人SHINKALION：三岛响）
+
+12/04 高仲 祐之(Takanaka Hiroyuki)（本名&旧名：高中宏之）〔神奈川県〕
+
+12/04 宫下 早纪(Miyashita Saki)〔奈良県〕（放学后桌游俱乐部：武笠美姬）
+
+12/04 那濑 ひとみ(Nase Hitomi)（别名：奥村ひとみ(Okumura Hitomi)）〔三重県〕
+
+12/04 田代 有纪(Tashiro Yuki)〔群马県〕
+
+12/04 小椋 美安加(Ogura Bianka)〔静冈県〕
+
+12/04 皆森 水希(Minamori Mizuki)〔千叶県〕
+
+12/04 根津 贵行(Nezu Takayuki)〔东京都〕
+
+12/05 川边 慎一(Kawabe Shinichi)〔茨城県〕
+
+12/05 涌津 ユウミ(Yuzu Yuumi)〔东京都〕
+
+12/05 古木 海帆(Furuki Miho)〔神奈川県〕
+
+12/05 得本 绫(Tokumoto Aya)〔大阪府〕
+
+12/05 实川 学(Jitsukawa Manabu)〔东京都〕
+
+12/05 江川 绿(Egawa Midori)〔广岛県〕
+
+12/05 鸣海 和希(Narumi Kazuki)〔东京都〕（迷家：山内）
+
+12/05 アサコ(Asako)〔埼玉県〕（团地友夫：根津幸夫）
+
+12/05 菊池 幸利(Kikuchi Yukitoshi)〔北海道〕（VAZZROCK：小野田翔）
+
+12/05 木村 遥(Kimura Haruka) 【非1981年3月22日神奈川出身同名者】〔北海道〕
+
+12/06 沟边 裕子(Mizobe Youko)〔大分県〕（超能力少女兰：由香）
+
+12/06 千叶 泉(Chiba Izumi)（旧名：千叶いずみ）〔东京都〕（食戟之灵：峰崎八重子）
+
+12/06 海保 えりか(Kaiho Erika)（旧名&中译：海保绘果）〔岩手県〕（D.C初音岛3：阳之下葵）
+
+12/06 沟边 佑子(Mizobe Yuuko)〔大分県〕
+
+12/06 吉田 将吾(Yoshida Shougo)〔静冈県〕
+
+12/07 莳村 拓哉(Makimura Takuya)〔千叶県〕
+
+12/07 中川 真由美(Nakagawa Mayumi)〔埼玉県〕
+
+12/07 绫崎 七菜(Ayasaki Nana)〔秋田県〕
+
+12/07 富川 翔伍(Tomikawa Shougo)〔德岛県〕
+
+12/07 武藏 真之介(Musashi Shinnosuke)〔京都府〕
+
+12/07 泽口 友哉(Sawaguhi Tomoya)〔东京都〕（地狱少女澪缘：松方智彦）
+
+12/07 田中 那实(Tanaka Tomomi)〔福岛県〕（偶像活动Friends!：仁科仁子）
+
+12/07 宫坂 俊藏(Miyasaka Jounzou)〔东京都〕（大神和他的七位伙伴：中田一郎）
+
+12/07 八木 侑纪(Yagi Yuki)〔大阪府〕（关于我女友是个一本正经的处女碧池这件事：筱崎奏多）
+
+12/07 上绦 千寻(Kamijo Chihiro)（本名&旧名：池上千寻(Ikegami Chihiro)）〔大阪府〕（铁路浪漫谭：白银）
+
+12/08 井上 まひろ(Inoue Mahiro)（中译：井上真寻）（旧名：箱田真寻(Hakoda Machiro)）〔埼玉県〕（Another：望月知香）
+
+12/08 笼濑 千惠子(Chigo Chieko)〔茨城県〕（Infinite Stratos：岸原理子）
+
+12/08 清水 みか(Shimizu Mika)（参考中译：清水美香）〔东京都〕
+
+12/08 森本 太登(Morimoto Taito)〔新潟県〕
+
+12/08 石田 流星(Ishida Ryuusei)〔新潟県〕
+
+12/08 村上 京(Murakami Kei)〔大阪府〕
+
+12/08 金子 修(Kaneko Osamu)〔东京都〕
+
+12/08 丰田 满里奈(Toyoda Marina)〔埼玉県〕
+
+12/09 国武 史弥(Kunitake Fumiya)〔兵库県〕
+
+12/09 陆田 由贵(Rikuta Yuki)〔高知県〕
+
+12/09 山田 美沙希(Yamada Misaki)〔静冈県〕
+
+12/09 难波 优马(Nanbo Yuuma)〔兵库県〕
+
+12/09 市川 久代(Ichikawa Hisayo)〔神奈川県〕
+
+12/09 小林 健次郎(Kobayashi Kenjirou)〔东京都〕
+
+12/09 祭田 绘理(Saita Eri)〔东京都〕（School Days：森来实）
+
+12/09 木本 くるみ(Kimoto Kurumi)（旧名&中译：木本久留美）〔熊本県〕
+
+12/09 井ノ原 洸大(Inohara Koudai)（旧名：池原滉大(Ikehara Koudai)）〔神奈川県〕
+
+12/09 米田 えん(Yoneda En)（旧名&中译：米田圆）（其他中译：米田缘(错译)）〔神奈川県〕
+
+12/10 泽田 泉(Sawada Izumi )〔埼玉県〕（尸鬼：武藤静子）
+
+12/10 纱上 呗菜(Sagami Kana)（旧名：村上歌菜(Murakami Kana)/なかやかな(Nakaya Kana)〔东京都〕
+
+12/10 白木 克枝(Shiraki Katsue)〔东京都〕
+
+12/10 渡边 允瑠(Watanabe Mitsuru)〔东京都〕
+
+12/10 吉川 筑(Yoshikawa Kizuku)〔新潟県〕
+
+12/10 竹内 瑠奈(Takeuchi Runa)〔北海道〕
+
+12/11 高山 智希(Takayama Tomoki)〔千叶県〕
+
+12/11 高村 晴香(Takamura Haruka)〔埼玉県〕
+
+12/11 kayto(Kaito)〔东京都〕（TECHNOROID Project：氖）
+
+12/11 黑泽 季希(Kurosawa Toshiki)（本名&旧名：黑泽寿树）〔茨城県〕
+
+12/11 大町 朋裕(Oomachi Tomohiri)〔大阪府〕（游戏王SEVENS：美藤兜）
+
+12/11 仲原 あきほ(Nakahara Akiho)（参考中译：仲原明穗）（旧名：くまはらあきほ(Kumahara Akiho)）〔？？？〕
+
+12/11 横山 拓人(Yokoyama Takuto)〔奈良県〕（转生成为了只有乙女游戏破灭Flag的邪恶大小姐...：刘易斯·克拉艾斯(卡塔琳娜之父)）
+
+12/11 蓝本 あみ(Aimoto Ami)〔岐阜県〕（参考中译：蓝本亚美）（联盟空军航空魔法音乐队光明魔女：柳德米拉·安德烈耶夫娜·鲁斯兰诺娃(Lyudmila Andreyevna Ruslanova)）
+
+12/12 凑 みや(Minato Miya)（参考中译：凑宫/凑美弥）〔东京都〕
+
+12/12 浅仓 弦希(Asakura Yuzuki)〔东京都〕（灰色的乐园：金田沙彩）
+
+12/12 中野 さゆり(Nakano Sayuri)〔埼玉県〕（青空下的约定：幼年的航）
+
+12/12 山本 圭一郎(Yamamoto Keiichirou)〔茨城県〕（金色琴弦Blue♪Sky：伊织浩平）
+
+12/12 松丸 幸太郎(Matsumaru Koutairou)〔大分県〕
+
+12/12 石黑 史刚(Ishiguro Fumitake)〔爱知県〕
+
+12/12 夏目 桂辅(Natsume Keisuke)〔爱知県〕
+
+12/12 吉田 幸代(Yoshida Sachiyo)〔岩手県〕
+
+12/13 根本 英明(Nemoto Hideaki)〔枥木県〕
+
+12/13 出牛 力(Teushi Chikara)〔埼玉県〕
+
+12/13 柴田 佳之(Shibada Yoshiyuki)〔秋田県〕（STRANGE+：旁白）
+
+12/13 星 祐树(Hoshi Yuuki)〔东京都〕（本田小狼与我：教务主任）
+
+12/13 上原 さやか(Uebara Sayaka)〔埼玉県〕（Memories Off ～それから again～：柏崎とおこ）
+
+12/14 谷内 友美(Yachi Tomomi)〔北海道〕（游戏王GX：枕田纯子）
+
+12/14 大南 友希(Oominami Yuki)（旧名：大南悠(Ohminami Haruka)）〔埼玉県〕
+
+12/14 桑名 翔子(Kawana Shouko)（旧名：谷田部翔子(Yatabe Shouko)）〔东京都〕
+
+12/14 けいたろう(Keitarou)（中译：庆太朗）（旧名：吉野庆太朗(Yoshino Keitarou)）〔千叶県〕
+
+12/14 嵩马 美步(Takauma Miho)〔兵库県〕
+
+12/14 福井 美树(Fukui Miki)〔岐阜県〕
+
+12/14 今井 辉光香(Imai Kimika)〔大阪府〕
+
+12/14 古川 未央那(Kogawa Miona)〔青森県〕
+
+12/14 米仓 希代子(Yonekura Kiyoko)〔东京都〕（小小安妮系列/Anne with an E：戴安娜·帕尼(吹替)）
+
+12/15 川古 升平(Kawako Shouhei)〔东京都〕
+
+12/15 田中 茧子(Tanaka Mayuko)〔东京都〕
+
+12/15 元吉 茉莉花(Motoyoshi Marika)〔广岛県〕
+
+12/15 三上 由理惠(Mikami Yurie)〔青森県〕
+
+12/15 岛田 高虎(Shimada Takatora)〔秋田県〕
+
+12/15 滨田 理奈(Hamada Rina)〔神奈川県〕
+
+12/15 小路 裕夕(Shouji Yuuyu)〔爱知県〕（无良工会：埃舍奈）
+
+12/15 相马 幸人(Koma Yukito)〔东京都〕（大正棒球娘：北见弘一）
+
+12/15 中村 纱彩(Nakamura Saaya)（旧名：北条纱彩(Houjou Saaya)）〔北海道〕
+
+12/15 绫濑 マリア(Ayase Maria)（参考中译：绫濑玛利亚）〔兵库県〕（EDGE PROUD：勇者(游戏)）
+
+12/15 草摩 そうすけ(Souma Sousuke)（参考中译：草摩宗介）〔东京都〕（爱米-WE LOVE RICE-：一见钟情）
+
+12/15 日向 ゆきこ(Hinata Yukiko)（参考中译：日向由纪子/日向雪子）〔福冈県〕（The AMAZING WORLD OF GUMBALL/阿甘妙世界：安娜伊思·沃特森(Anais Watterson)）
+
+12/16 中村 圭佑(Nakamura Keisuke)（配偶：民安ともえ）〔岩手県〕
+
+12/16 北村 彩(Kitamura Aya)（别名：雪村とあ(Yukimura Toa)）〔宫城県〕
+
+12/16 樱井 みゆき(Sakurai Miyuki)（参考中译：樱井美幸）〔东京都〕（柚木家的四兄弟。：柚木凑）
+
+12/16 大崎 なつ(Oosaki Natsu)（参考中译：大崎奈津）（旧名：尾崎明美(Ozaki Akemi)）〔千叶県〕
+
+12/16 关根 明良(Sekine Akira)〔东京都〕（广阔天空！光之美少女：空·哈雷瓦塔尔/Cure Sky）
+
+12/16 内村 史子(Uchimura Fumiko)〔鹿儿岛県〕（我，不是说了能力要平均值么！：梅维丝·冯·奥斯汀）
+
+12/16 后藤 启佑(Gotou Keisuke)〔岐阜県〕
+
+12/16 反町 有里(Sorimachi Yuri)〔大阪府〕
+
+12/16 田中 圣奈(Tanaka Seina)〔兵库県〕
+
+12/16 森谷 彩子(Moriya Ayako)〔东京都〕
+
+12/16 小池 圣人(Koike Masato)〔枥木県〕
+
+12/16 广濑 淳(Hirose Jun)〔茨城県〕
+
+12/16 梅田 未央(Umeda Mio)〔兵库県〕
+
+12/17 佐久间 元辉(Sakuma Motoki)〔新潟県〕
+
+12/17 泽田 将考(Sawada Masataka)〔千叶県〕
+
+12/17 武久 枫(Takehisa Kaede)〔大阪府〕
+
+12/17 森 岳志(Mori Takeshi)〔埼玉県〕
+
+12/17 川部 有纪(Kawabe Yuki)〔滋贺県〕
+
+12/17 本田 栞(Honda Shiori)〔福冈県〕
+
+12/17 荒木 寿茂(Araki Toshishige)〔北海道〕
+
+12/17 圆城寺 舞(Enjouji Mai)〔佐贺県〕
+
+12/17 加藤 ルイ(Katou Rui)（参考中译：加藤类）〔千叶県〕
+
+12/18 铃木 爱唯(Suzuki Ayu)〔千叶県〕（义妹生活：奈良坂真绫）
+
+12/18 藤崎 纱矢香(Fujisaki Sayaka)（旧名：藤崎さや香）〔冈山県〕
+
+12/18 水落 幸子(Mizuochi Yukiko)〔东京都〕（东京地震8.0：日下部和代）
+
+12/18 高山 ゆうこ(Takayama Yuuko)〔群马県〕（笨蛋测试召唤兽：中林宏美）
+
+12/18 铃木 はるこ(Suzuki Haruko)（参考中译：铃木晴子）（旧名：狛乃ハルコ(Komano Haruko)）〔神奈川県〕
+
+12/18 安立 阳介(Adachi Yousuke)〔爱知県〕
+
+12/18 馆林 和美(Tateyashi Kazumi)〔山梨県〕
+
+12/18 石原 雅人(Ishihata Masato)〔广岛県〕
+
+12/18 山品 明日香(Yamashina Asuka)〔鸟取県〕
+
+12/18 吉田 真澄(Yoshida Masumi)〔青森県〕
+
+12/19 田村 千惠(Tamura Chie)〔东京都〕
+
+12/19 淀川 清(Yodogawa Kiyoshi)〔东京都〕
+
+12/19 森濑 惇平(Morise Jounpei)〔千叶県〕
+
+12/19 半泽 敦史(Hanzawa Atsushi)〔福岛県〕
+
+12/19 都筑 大辅(Tsuzuki Daisuke)〔爱知県〕
+
+12/19 松田 裕市(Matsuda Yuichi)〔神奈川県〕
+
+12/19 榊 拓也(Sakaki Takuya)〔鸟取県〕
+
+12/19 羽田 茉夏(Hada Manatsu)〔兵库県〕
+
+12/19 阿立 侑也(Adachi Yuuya)〔山形県〕
+
+12/19 花村 绿(Hanamura Midori) 〔山形県〕
+
+12/19 琴宫 步梦(Kotomiya Ayumu)〔和歌山県〕
+
+12/19 首藤 志奈(Shutou Yukina)〔大分県〕（Liar·Liar：姬路白雪）
+
+12/19 半田 裕典(Handa Yusuke)〔静冈県〕（正解的卡多：大石哲男）
+
+12/19 最上 みゆう(Mogami Miyuu)（中译：最上美优）（旧名：铃木美优(Suzuki Miyuu)）〔？？？〕
+
+12/19 水绮 セイラ(Mizuki Seira)（参考中译：水绮圣罗）（旧名：乃本セイラ(Nomoto Seira)）〔爱媛県〕
+
+12/19 鸡内 一也(Kaichi Kazuya)（配偶：贝原怜奈）〔广岛県〕（超级机器人大战系列：阿拉德·瓦兰加(游戏)）
+
+12/19 森口 芽衣(Moriguchi Mei)（旧名：市川まゆ美(Ichikawa Mayumi)/市川まゆみ）〔东京都〕（苍穹的法芙娜：幼少的甲洋）
+
+12/20 古城门 志帆(Kokido Shiho)〔东京都〕（数码兽宇宙应用怪兽：飞鸟虎次郎）
+
+12/20 花田 麻实子(Hanada Mamiko)〔千叶県〕
+
+12/20 渡边 明佳(Watanabe Sayaka)〔东京都〕
+
+12/20 百田 绘理花(Momota Erika)〔东京都〕
+
+12/20 小仓 弥优(Ogura Miyuu)〔北海道〕
+
+12/20 难波 祐香(Nanba Yuuka)〔静冈県〕
+
+12/20 关 通利(Seki Michitoshi)〔长野県〕
+
+12/20 川崎 万智(Kawasaki Machi)〔埼玉県〕
+
+12/20 高桥 宏幸(Takahashi Hiroyuki)〔宫城県〕
+
+12/20 阪本 久瑠实(Sakamoto Kurumi)〔大阪府〕
+
+12/20 山本 宽子(Yamamoto Hiroko)〔千叶県〕
+
+12/21 田畑 裕也(Tabata Yuuya)〔奈良県〕
+
+12/21 秋吉 优衣(Akiyoshi Yui)〔茨城県〕
+
+12/21 渡庆次 信幸(Tokeshi Nobuyuki)〔埼玉県〕
+
+12/21 岩楯 みゆき(Iwadate Miyuki)〔东京都〕
+
+12/21 笹冈 雄介(Sasaoka Yuusuke)〔长野県〕
+
+12/21 山口 浩太(Yamaguchi Kouta)〔爱知県〕（日常：田中）
+
+12/21 清和 祐子(Seiwa Yuko)〔埼玉県〕（舞动芝加哥(2010)：茜茜·琼斯(吹替)）
+
+12/21 保澄 しのぶ(Hozumi Shinobu)（参考中译：保澄忍）〔滋贺県〕（18if：三枝美礼）
+
+12/21 鸟越 まあや(Torigoe Maaya)（参考中译：鸟越真彩/鸟越真绫/鸟越真礼）〔冈山県〕
+
+12/21 寺依 沙织(Terai Saori)（旧名：寺井沙织）〔东京都〕（游戏王GX：阿蒙·卡拉姆(幼年)）
+
+12/22 井上 富美子(Inoue Fumiko)（配偶：美齐津惠友）〔东京都〕（拳王创世纪：志那虎二叶）
+
+12/22 ちふゆ(Chifuyu)（中译：千冬）（本名&旧名：米村千冬(Yonemura Chifuyu)）〔神奈川県〕
+
+12/22 田中 翔大(Tanaka Shouta)（本名&旧名：田仲翔太）〔兵库県〕
+
+12/22 逢叶 もえこ(Aiba Moeko)（参考中译：逢叶萌子）〔东京都〕
+
+12/22 山田 えり(Yamada Eri)（旧名&中译：山田绘梨）〔大阪府〕
+
+12/22 奥友 沙绚(Okutomo Saaya)〔岩手県〕
+
+12/22 青木 紫水(Aoki Shisui)〔神奈川県〕
+
+12/22 前田 惠(Maeda Kei)〔埼玉県〕
+
+12/22 木村 优子(Kimura Yuuko)〔埼玉県〕
+
+12/23 片贝 直生(Katagai Nao)〔东京都〕
+
+12/23 有园 司(Arizono Tsukasa)〔千叶県〕
+
+12/23 江尻 拓己(Eriji Takumi)〔福岛県〕
+
+12/23 樱井 健太郎(Sakurai Kentaro)〔大阪府〕
+
+12/23 广泽 诚(Hirose Shin)〔埼玉県〕
+
+12/23 山口 瑞树(Yamaguchi Mizuki)（旧名：山口瑞）〔茨城県〕
+
+12/23 喜多 かりん(Kita Karin)（本名&旧名&中译：喜多香林）〔奈良県〕
+
+12/23 伊藤 さや香(Itou Sayaka)（参考中译：伊藤沙耶香/伊藤清香）〔北海道〕
+
+12/23 饭田 奈保美(Iida Naomi)〔奈良県〕（Code：Realize～创世的姬君～：亚利山德拉·维多利亚）
+
+12/24 中川 舞维(Nakagawa Mai)（旧名：なかがわまい）〔埼玉県〕
+
+12/24 佐佐木 诗帆(Sasaki Shiho)〔北海道〕（PUPIPO：姬路若叶）
+
+12/24 黑崎 しおり(Kurosaki Shiori（参考中译：黑崎诗织）〔爱知県〕
+
+12/24 猪股 慧士(Inomata Satoshi)〔福冈県〕（终究、与你相恋：星川周吾）
+
+12/24 加藤 圣奈(Katou Seina)〔大阪府〕（宇崎学妹想要玩耍！ω(Daburu)：宇崎柳）
+
+12/24 志摩 淳(Shima Jun)（旧名：やまきしま(Yamaki Shima)）〔千叶県〕（媳妇的美好时代(2009)：毛豆豆(吹替)）
+
+12/24 うの ちひろ(Uno Chihiro)（参考中译：宇野千寻）〔京都府〕（大怪兽RUSH 超级边境 VEROKRON狩猎：Kanegon a Kind）
+
+12/24 小花井 优(Kohanai Yuu)〔奈良県〕
+
+12/24 宫森 ちひろ(Miyamori Chihiro)〔宫城県〕
+
+12/24 土居 伸之(Doi Nobuyuki)〔爱媛県〕
+
+12/24 天道 光香(Tendou Mika)〔冈山県〕
+
+12/24 真锅 俊之(Manabe Toshiyuki)〔东京都〕
+
+12/24 濑户 奈保子(Seto Naoko)〔神奈川県〕
+
+12/24 铃木 雅之(Suzuki Masayuki)〔大阪府〕
+
+12/24 涩谷 大智(Shibuya Daichi)〔埼玉県〕
+
+12/24 高原 かほり(Takahara Kahori)〔兵库県〕
+
+12/25 今川 柊稀(Imagawa Shuuki)〔福冈県〕
+
+12/25 吉田 胜哉(Yoshida Katsuya)〔群马県〕
+
+12/25 伊藤 良幸(Itou Yoshiyuki)〔埼玉県〕
+
+12/25 田村 清准(Tamura Seijun)〔京都府〕
+
+12/25 丰岛 圣人(Toyoshima Masato)〔兵库県〕
+
+12/25 黑川 凛(Kurokawa Rin)〔京都府〕
+
+12/25 山田 京奈(Yamada Keina)〔埼玉県〕
+
+12/25 仓田 哲朗(Kurata Tetsuo)〔神奈川県〕
+
+12/25 苅谷 瑠衣(Kaya Rui)〔爱知県〕（兽娘动物园：日本黑熊）
+
+12/25 酒井 敬幸(Sakai Keikotu)〔福岛県〕（隐王：田中九五郎）
+
+12/25 藤本 教子(Fujimoto Noriko)〔广岛県〕（幻影斗士：波姆）
+
+12/25 なりた 雏系(Narita Hiyori)（中译：成田雏系）（旧名：成田ひより）〔东京都〕
+
+12/25 水神 のりこ(Mikami Noriko)（中译：水神纪子）（其他中译：水神法子(错译)）（旧名：佐藤纪子(Satou Noriko)）〔埼玉県〕
+
+12/25 佐藤 ゆうこ(Satou Yuko)（参考中译：佐藤叶子/佐藤祐子）（本名：当真须美子(Touma Sumiko)/佐藤须美子(Satou Sumiko)(旧姓)）〔千叶県〕（通灵王(2001版)：麻仓叶）
+
+12/26 高桥 杏奈(Takahashi Anna)〔东京都〕（12岁：加藤花音）
+
+12/26 深田 爱衣(Fukada Ai)〔鹿儿岛県〕（爱·天地无用!：笛山塔里）
+
+12/26 末长 柊人(Suenaga Shuuto) （旧名：柊人(Shuuto)）
+
+12/26 浅水 健太朗(Asami Kentarou)〔东京都〕（彼得·格里尔的贤者时间：提姆·罗宾逊）
+
+12/26 高津 はる菜(Takatsu Haruna)（中译：高津春菜）（旧名：高津春希(Kouzu Haruki)）〔千叶県〕
+
+12/26 中野 泰佑(Nakano Taisuke)〔东京都〕（TOMICA友情合体 EARTH GRANNER：旁白）
+
+12/26 南条 ひかる(Nanjou Hikaru)（参考中译：南条光）〔千叶県〕（女神宿舍的管理员。：香炉野史缇亚）
+
+12/26 九埜 りゅうま(Kuno Ryuuma)（中译：九埜龙马）（旧名：佐佐木龙马(Sasaki Ryuuma)）〔北海道〕（number24：庞萨克雷克·犹涅）
+
+12/26 石村 惠美(Ishimura Emi)〔新潟県〕
+
+12/26 野口 花绪(Noguchi Hanao)〔千叶県〕
+
+12/26 濑户 瑞生(Seto Mizuki)〔京都府〕
+
+12/26 元井 拓巳(Tomoi Takumi)〔大阪府〕
+
+12/27 奥原 彩(Okuhara Aya)〔长野県〕
+
+12/27 居谷 四郎(Itani Shirou)〔兵库県〕
+
+12/27 衣鸠 志野(Ibato Shino)〔千叶県〕
+
+12/27 樱井 翼(Sakurai Tsubasa)〔广岛県〕
+
+12/27 平出 吏(Hiraide Tsukasa)〔长野県〕
+
+12/27 桥爪 千明(Hashizume Chiaki)〔大阪府〕
+
+12/27 滨中 优羽(Hamanaka Yuu)〔千叶県〕
+
+12/27 宇野 翔真(Uno Shouma)〔大阪府〕
+
+12/27 马场 菜绪(Baba Nao)〔德岛県〕
+
+12/27 间中 三云(Manaka Mikumo)（旧名：真中三云）〔东京都〕
+
+12/27 柏山 奈奈美(Kashiyama Nanami)〔宫城県〕（R-15：园声谣江）
+
+12/28 相合谷 由马(Sougoya Yuma)〔群马県〕（撼龙天棺(2021)：张天陵(吹替)）
+
+12/28 藤本 彩花(Fujimoto Ayaka)〔兵库県〕（偶像大师灰姑娘女孩剧场：栋方爱海）
+
+12/28 みやばら しほ(Miyabara Shiho)（别名：宫原志穗(中译)/凤野骏河(Houno Suruga)）〔岩手県〕
+
+12/28 和久井 まな(Wakui Mana)（中译：和久井真菜）（旧名：田代真菜(Tashiro Mana)）〔北海道〕
+
+12/28 永井 真衣(Nagai Mai)〔群马県〕（内衣战士玫瑰蝴蝶 New Season：雫(パピヨンマーガレット)）
+
+12/28 木野 智香(Kino Chika)〔大阪府〕
+
+12/28 田畑 宁宁(Tabata Nene)〔埼玉県〕
+
+12/28 川端 麻衣(Kawabata Mai)〔东京都〕
+
+12/28 林 瑞贵(Hayashi Mizuki)〔神奈川県〕
+
+12/29 土井飞 雄马(Toi Hyuuma)〔兵库県〕
+
+12/29 宫崎 好轨(Miyazaki Yoshiki)〔兵库県〕
+
+12/29 凉花 萌(Suzuhana Moe)（旧名：こまりまこ(Komari Mako)）〔京都府〕（22/7：神木御神）
+
+12/29 珠木 のぞみ(Tamaki Nozomi)（参考中译：珠木希）（旧名：玉川のぞみ(Tamakawa/Tamagawa Nozomi)）〔千叶県〕
+
+12/30 宇和川 惠美(Uwagawa Emi)〔兵库県〕（真·三国无双系列：孙尚香）
+
+12/30 贯井 柚佳(Nukui Yuka)〔东京都〕（银砂糖师与黑妖精：安·哈尔福德）
+
+12/30 八木 かおり(Yagi Kaori)（参考中译：八木香织）〔神奈川県〕（天国少女：玛利亚）
+
+12/30 上田 のりこ(Ueda Noriko)（本名&旧名&中译：上田纪子）〔神奈川県〕（迷糊软网社：风间田绫香）
+
+12/30 清水 健佑(Shimizu Kensuke)〔大阪府〕
+
+12/30 峰 晃弘(Mine Akihiro)〔神奈川県〕
+
+12/30 须永 陆斗(Sunaga Rikuto)〔群马県〕
+
+12/30 佐藤 るみ(Satou Rumi)〔埼玉県〕
+
+12/31 本间 由利香(Honma Yukari)〔新潟県〕
+
+12/31 佐藤 雄一(Satou Yuuichi)〔青森県〕
+
+12/31 木村 聪子(Kimura Satoko)〔东京都〕
+
+12/31 谷野 悠里子(Yano Yuriko)〔东京都〕（碧蓝航线：萩）
+
+12/31 有贺 由树子(Aruga Yukiko)〔爱知県〕（杜鹃的婚约：天野律子）
+
+12/31 春日 アン(Kasuga An)（参考中译：春日杏）（旧名：春乃うらら(Haruno Urara)/纱梦もも(Sayume Momo)/加澄もも(Kasumi Momo)）〔？？？〕（真·恋姬†无双：于禁）
