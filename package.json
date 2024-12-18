@@ -3,6 +3,7 @@
     "vitepress": "^1.5.0"
   },
   "scripts": {
+    "postinstall": "chmod +x ./node_modules/.bin/vitepress",
     "docs:dev": "vitepress dev docs",
     "docs:build": "vitepress build docs",
     "docs:preview": "vitepress preview docs"
