@@ -44,7 +44,7 @@ export default defineConfig({
           { text: '1980 世代', link: '/1980' },
           { text: '1990 世代', link: '/1990' },
           { text: '2000 世代', link: '/2000' },
-          { text: '2010 世代', link: '/2010' },
+          { text: '2010 世代', link: '/2010' }
         ]
       },
       {
@@ -54,7 +54,9 @@ export default defineConfig({
           { text: '信息未知', link: '/Unknown' }
         ]
       },
-      { text: '关于', link: '/about'},
+      { text: '关于',
+        items: [{text: '关于', link: '/about'}]
+      }
     ],
 
     socialLinks: [
@@ -62,8 +64,8 @@ export default defineConfig({
     ],
     
     footer: {
-        copyright: "This Page Use MIT Licensed | Copyright © 2024 Sakura & Aki",
-        message: ""
+        copyright: "Content licensed under CC BY-NC-SA 4.0 | Copyright © 2024 Sakura & Aki",
+        message: "Proudly Powered by VitePress"
       },
       search: {
         provider: 'local'

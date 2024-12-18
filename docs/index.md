@@ -5,7 +5,7 @@ layout: home
 hero:
   name: "Japanese CV"
   text: "日本声优一览表"
-  tagline: 基于 20241218 版本. 由 Sakura 编纂整理, Aki 包装发表
+  tagline: 基于 20241218 版本. 由 Sakura 整理, Aki 发布.
   actions:
     - theme: brand
       text: 开始浏览
