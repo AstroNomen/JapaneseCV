@@ -5,14 +5,14 @@ layout: home
 hero:
   name: "Japanese CV"
   text: "日本声优一览表"
-  tagline: 基于 20241104 版本. 由 Sakura 整理, Aki 包装发表
+  tagline: 基于 20241218 版本. 由 Sakura 编纂整理, Aki 包装发表
   actions:
     - theme: brand
-      text: 年代划分
+      text: 开始浏览
       link: /1900-1930
     - theme: alt
-      text: 信息不详
-      link: /Unknown
+      text: 关于本站
+      link: /about
 
 features: 
   - icon: 🗃

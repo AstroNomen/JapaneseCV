@@ -28,7 +28,8 @@ export default defineConfig({
           { text: '年份未知', link: '/Year Unknown' },
           { text: '信息未知', link: '/Unknown' }
         ]
-      }
+      },
+      { text: '关于', link: '/about'},
     ],
 
     sidebar: [
@@ -52,7 +53,8 @@ export default defineConfig({
           { text: '年份未知', link: '/Year Unknown' },
           { text: '信息未知', link: '/Unknown' }
         ]
-      }
+      },
+      { text: '关于', link: '/about'},
     ],
 
     socialLinks: [
