@@ -57,7 +57,8 @@ export default defineConfig({
 
     socialLinks: [
       { icon: 'github', link: 'https://github.com/AstroNomen/JapaneseCV' }
-    ]
+    ],
+    
     footer: {
         copyright: "This Page Use MIT Licensed | Copyright © 2024 Sakura & Aki",
         message: ""
