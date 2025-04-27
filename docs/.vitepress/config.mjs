@@ -12,6 +12,7 @@ export default defineConfig({
         text: '年代',
         items: [
           { text: '1900-1930', link: '/1900-1930' },
+          { text: '1930 世代', link: '/1930' },
           { text: '1940 世代', link: '/1940' },
           { text: '1950 世代', link: '/1950' },
           { text: '1960 世代', link: '/1960' },
@@ -37,6 +38,7 @@ export default defineConfig({
         text: '年代',
         items: [
           { text: '1900-1930', link: '/1900-1930' },
+          { text: '1930 世代', link: '/1930' },
           { text: '1940 世代', link: '/1940' },
           { text: '1950 世代', link: '/1950' },
           { text: '1960 世代', link: '/1960' },
